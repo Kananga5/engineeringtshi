@@ -3371,5 +3371,4529 @@ to Electrical
 [Message clipped]  View entire message
  	
 
+Conversation opened. 126 messages. 1 message unread.
+
+Skip to content
+Using Gmail with screen readers
+6 of 389
+Appeal statement result .award degre diploma certificate n engineering studie
+Inbox
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Tue, Dec 26, 2023, 12:25 PM
+	
+to me, tshigombekb, maraba.a, lundt.s@dhet.gov.za, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp
+Application 
+Ref :Applications letter   number : 2023/1226
+____________________________________
+ADRESS:PRIVATE BAG X 174 ,PRETORIA 0001
+123 FRANCIS BAARD STREET PRETORIA
+TEL:0123235618
+______________________________________
+ENQUIRY NUMBER: 
+DHET : 
+DOCKET NUMBER  :2023/1226
+INFORMATION MANAGEMENT SYSTEM 
+- INSTITUT COLLEGE NAME :ST PEACE COLLEGE
+-ID: NUMBER: TIRC0G000910610
+-REGISTRATION NUMBER: STUDENT  -CO70040101099
+-SARS VAT NUMBER: 923228238
+-MERSETA : 17_QA/ACC/1311/17
+-SAQA REGISTRAR STUDENT NUMBER:210020223812,2004007064382.
+-email adress: tshingombekb@gmail.com
+-Alternate email address: tshingombefiston@gmail.com
+
+
+________________________________________
+APPEAL DECISSION  RESULT RELEASE:
+APPLICATION NUMBER:
+Saqa: institut foreign .saqa transcription meeting  71638 dr congo requirements  grasuate award diploma nqf  .high certificate no meeting .leave school .expended assessments  .exam  d etat diploma .certificate  professionek .certificate informatics mathematicsvoffics  ; result outcom  primaryb status registration saqa asset 09121 .saqa institut 30_ 39 nc assess policy.IE099 ,saqa  id 67q0 certificate advance phase teach .n1 saqa id 63375.id 67491 entrance
+ .n diplomat 
+-Qualification title national N diplomat  engineering. 
+-nqf level:6 .
+-date submitted to dhet :1105/2023
+-date  process .
+DHET 
+-Timebtable /50111002 
+-N1:engineering studie
+-ID:2004007064381
+-ID:2100002023812
+
+________________________________________
+Dear .mr minister of education dhet and deputy member of dhet .tvet college examination directorat and authority competencies. Governments  president 
+I' mr tshingombe tshitadi ;acknowledge student st peace college candidat examination career student follow course in duty of nated in rsa 2019 to 2024 ,  i 'm appear  to your department goverment institution  for allegation view no result of statement id candidat engineering  n1.,n2, n,3,n4  ,n3 and n diplomat  saqa outcom in irregularity  final n5.n6  /nqf 6.
+ examination national examination was not delivery in the time  external assessments  commited irregularities. 
+
+1.my motivation and disciplinairy assessment submitted my portofolio on line portal dhet release resultat statement and finalized award diplomat by examination commited irregularityb november invalide subject n3 trade theory electricakbtranscript  the result of assessment was note release reson irregularity n3.subject n4 .subject fail druip result february 2022 .directorat assessment  trascript material .statement affidavitsubmitted st peace college registrar shalom technical and afric instirut college  no result outcom .after 15 days was result scaling n1.n2.n3but statement didint come out not print out by registrations resonement inconveniant. Arbitrary irregularity on february i submitted topics saqa qcto dhet email result of saqa documentation; filing dbe dhet .the commited was under investigation  soon to finalyse .
+
+2. I received to dhet committed assessment  examinations  irregularities the retain
+, invalide subject 23 february 2022   the time table of n3 subject admnistration exam with those subject trade . electrical trade theory .4 subject november 2023 examination  rhe result statement  for last examination was not print outcome  n1.n2 submited n3 last time table exam only last n4 exam statement print outcome and not time table for n6.,n5 received in examinations november  suspension is 11 month for irregularity .follow tvet guideline assessment. Exam over the date insurence body frameworks qualification and labour department  uif coud claim no outcom in career portal was outcom granted  national fund skill for extra subject topics irregularity rwiten qcto practical was not granted  scope portal research qcto .
+3.allegation result statement  retain dhet .;saqa n diploma n diplomat application for n4.6 diplomat final was no granted n4.level 4 diploma icass years college in my portofolio submitted on line marked exam n5.n6.subject additional assessment information  by institution isat icass.
+Ref outcome saqa result
+16 jan 2023 on line marischen masoga  send submission number  foreing instirut inquirie 9370.
+Foreign institutions inquiries 6594
+Section 29(a)policy criteria saqa nqf amanded march 2017 institut ...framework nqf  foreign award must meet  for recognise.
+Saqa accepted only qualifications  official examination body country ..external examination based , 26 july 2022.
+4.allegation to qcto retain on ; saturday22 january 2022. ; with regard  n certificate  direction  dhet education training (for n4_n6 n diploma or umalusi n3 can not assist with qcto issued  
+Sat ..10 march 203 qxto .certificate@qcto.org.za  answer soc please note that the qcto does not issue any of results 
+-lindiwe grace 28 may 2023 inquire to national and assessment college .i have copied our QA unit  they will be able to rspond to accorlingly regardc
+Qcto  khuluvhe  labour market intelligences  lmi esteemed stakeholder  21 aug 2023 was not grante
+
+- i receiving   Allegation to saqa retain on.10 march 2023  procedure for evaluatiin  pro forma invoice .copy id passport.copy final award graduation certificate. Copy of completed transcript mark sheet academic record.proof payment   if not meetings requirements can resubmitted again.non compliant; 27 july 2021 application above doe s not meet saqa 
+Final award school diploma degre certificate in 48h .
+-that my requested letter to the authority minister for my result statement certificat  over the date review n diploma 24 month.18 month nated examination  to resolve problem after examination irregularities materiel that final result n4 and new re certificate body insurence investigation result center assessment  outcome  years icass total tvet  for my instirut st peace college institu  and externsl certificate n1.n3  afric training institut and shalom technical  collection  print out was not in my application for diploma response from dhet  submitted to resolve conflic assessment examination. 
+
+- your sincerly .
+Sign :Tshingombe Tshitadi 
+_________________________________
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Mail Delivery Subsystem
+	
+	Dec 26, 2023, 12:26 PM
+Address not found Your message wasn't delivered to callcentre@dhet.gov because the domain dhet.gov couldn't be found. Check for typos or unnecessary spaces and
+Mail Delivery Subsystem
+	
+	Dec 26, 2023, 12:26 PM
+Address not found Your message wasn't delivered to lutuka.m@shet.go.za because the domain shet.go.za couldn't be found. Check for typos or unnecessary spaces an
+Mail Delivery Subsystem
+	
+	Dec 26, 2023, 12:26 PM
+Address not found Your message wasn't delivered to tena.m@dhet.gv.za because the domain dhet.gv.za couldn't be found. Check for typos or unnecessary spaces and
+Mail Delivery Subsystem
+	
+	Dec 26, 2023, 12:26 PM
+Address not found Your message wasn't delivered to tshigombekb@gmail.com because the address couldn't be found, or is unable to receive mail. LEARN MORE The res
+Mail Delivery Subsystem
+	
+	Dec 26, 2023, 12:26 PM
+Message blocked Your message to maraba.a@dhet.gov.za has been blocked. See technical details below for more information. The response from the remote server was
+postmaster@dst.gov.za
+	
+	Dec 26, 2023, 12:26 PM
+Your message to esther.rammultla@dst.gov.za couldn't be delivered. esther.rammultla wasn't found at dst.gov.za. tshingombefiston Office 365 esther.rammultla Act
+Mail Delivery Subsystem <mailer-daemon@googlemail.com>
+	
+Wed, Dec 27, 2023, 2:09 PM
+	
+to me
+Error Icon
+Delivery incomplete
+There was a temporary problem delivering your message to modiba.d@dhet.co.za. Gmail will retry for 46 more hours. You'll be notified if the delivery fails permanently.
+LEARN MORE
+The response was:
+
+The recipient server did not accept our requests to connect. Learn more at https://support.google.com/mail/answer/7720 [dhet.co.za 35.186.238.101: timed out]
+
+
+
+---------- Forwarded message ----------
+From: tshingombe fiston <tshingombefiston@gmail.com>
+To: tshingombe fiston <tshingombefiston@gmail.com>, tshigombekb@gmail.com, maraba.a@dhet.gov.za, "lundt.s@dhet.gov.za" <lundt.s@dhet.gov.za>, tena.m@dhet.gv.za, lutuka.m@shet.go.za, president@presidency.gov.za, esther.rammultla@dst.gov.za, modiba.d@dhet.co.za, dmandaha@csir.co.za, callcentre@dhet.gov, careerhelp@dhet.gov.za
+Cc: 
+Bcc: 
+Date: Tue, 26 Dec 2023 12:25:51 +0200
+Subject: Appeal statement result .award degre diploma certificate n engineering studie
+----- Message truncated -----
+tshingombe fiston
+	
+	Dec 27, 2023, 4:33 PM
+An.n3 .in the relevant specialization area communication nqf level 4 in language teaching ..theoretical knowl2 and practical skills required and learning of ins
+Mail Delivery Subsystem
+	
+	Dec 28, 2023, 12:24 PM
+Address not found Your message wasn't delivered to callcentre@dhet.gov because the domain dhet.gov couldn't be found. Check for typos or unnecessary spaces and
+Mail Delivery Subsystem
+	
+	Dec 28, 2023, 12:24 PM
+Address not found Your message wasn't delivered to tena.m@dhet.gv.za because the domain dhet.gv.za couldn't be found. Check for typos or unnecessary spaces and
+Mail Delivery Subsystem
+	
+	Dec 28, 2023, 12:24 PM
+Address not found Your message wasn't delivered to lutuka.m@shet.go.za because the domain shet.go.za couldn't be found. Check for typos or unnecessary spaces an
+Mail Delivery Subsystem
+	
+	Dec 28, 2023, 12:24 PM
+Address not found Your message wasn't delivered to tshigombekb@gmail.com because the address couldn't be found, or is unable to receive mail. LEARN MORE The res
+Mail Delivery Subsystem
+	
+	Dec 28, 2023, 12:24 PM
+Message blocked Your message to maraba.a@dhet.gov.za has been blocked. See technical details below for more information. 550 5.4.1 Recipient address rejected: A
+postmaster@dst.gov.za
+	
+	Dec 28, 2023, 12:25 PM
+Your message to esther.rammultla@dst.gov.za couldn't be delivered. esther.rammultla wasn't found at dst.gov.za. tshingombefiston Office 365 esther.rammultla Act
+Mail Delivery Subsystem
+	
+	Dec 28, 2023, 1:18 PM
+Delivery incomplete There was a temporary problem delivering your message to modiba.d@dhet.co.za. Gmail will retry for 23 more hours. You'll be notified if the
+Mail Delivery Subsystem
+	
+	Dec 29, 2023, 12:56 PM
+Delivery incomplete There was a temporary problem delivering your message to modiba.d@dhet.co.za. Gmail will retry for 47 more hours. You'll be notified if the
+Mail Delivery Subsystem
+	
+	Dec 29, 2023, 2:55 PM
+Message not delivered There was a problem delivering your message to modiba.d@dhet.co.za. See the technical details below. LEARN MORE The response was: The reci
+Mail Delivery Subsystem
+	
+	Dec 30, 2023, 4:38 PM
+Delivery incomplete There was a temporary problem delivering your message to modiba.d@dhet.co.za. Gmail will retry for 19 more hours. You'll be notified if the
+Mail Delivery Subsystem
+	
+	Dec 31, 2023, 1:07 PM
+Message not delivered There was a problem delivering your message to modiba.d@dhet.co.za. See the technical details below. LEARN MORE The response was: The reci
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Wed, Jan 3, 10:22 AM
+	
+to tshigombekb, maraba.a, lundt.s@dhet.gov.za, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp, me
+
+Appeal statement result .award degree diploma certificate n engineering studies
+
+I
+
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+
+Tue, Dec 26, 2023, 12:25 PM (8 days ago)
+
+	
+
+
+	
+	
+	
+
+to me, tshigombekb, maraba.a, lundt.s@dhet.gov.za, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+Application 
+
+Ref :Applications letter   number : 2023/1226
+
+____________________________________
+
+ADRESS:PRIVATE BAG X 174 ,PRETORIA 0001
+
+123 FRANCIS BAARD STREET PRETORIA
+
+TEL:0123235618
+
+______________________________________
+
+ENQUIRY NUMBER: 
+
+DHET : 
+
+DOCKET NUMBER  :2023/1226
+
+INFORMATION MANAGEMENT SYSTEM 
+
+- INSTITUT COLLEGE NAME :ST PEACE COLLEGE
+
+-ID: NUMBER: TIRC0G000910610
+
+-REGISTRATION NUMBER: STUDENT  -CO70040101099
+
+-SARS VAT NUMBER: 923228238
+
+-MERSETA : 17_QA/ACC/1311/17
+
+-SAQA REGISTRAR STUDENT NUMBER:210020223812,2004007064382.
+
+-email address: tshingombekb@gmail.com
+
+-Alternate email address: tshingombefiston@gmail.com
+
+ 
+
+ 
+
+________________________________________
+
+APPEAL DECISSION  RESULT RELEASE:
+
+APPLICATION NUMBER:
+
+Saqa: institute foreign .saqa transcription meeting  71638 dr Congo requirements  graduate award diploma nqf  .high certificate no meeting .leave school .expended assessments  .exam  d’ etat diploma .certificate  professional .certificate informatics mathematics offices  ; result outcome  primary status registration saqa asset 09121 .saqa institute 30_ 39 nc assess policy.IE099 ,saqa  id 67q0 certificate advance phase teach .n1 saqa id 63375.id 67491 entrance
+
+ .n diplomat 
+
+-Qualification title national N diplomat engineering. 
+
+-nqf level:6.
+
+-date submitted to dhet :1105/2023
+
+-date process .
+
+DHET 
+
+-Time  table /50111002 
+
+-N1:engineering studies
+
+-ID:2004007064381
+
+-ID:2100002023812
+
+ 
+
+________________________________________
+
+Dear .mr minister of education dhet and deputy member of dhet .tvet college examination directorate and authority competencies. Governments  president 
+
+I' mr tshingombe tshitadi ;acknowledge student st peace college candidate examination career student follow course in duty of nated in rsa 2019 to 2024 ,  i 'm appear  to your department government institution  for allegation view no result of statement id candidate engineering  n1.,n2, n,3,n4  ,n3 and n diplomat  saqa outcome in irregularity  final n5.n6  /nqf 6.
+
+ Examination national examination was not delivery in the time external assessments committed irregularities. 
+
+ 
+
+1.my motivation and disciplinary assessment submitted my portfolio on line portal dhet release result at statement and finalized award diplomat by examination committed irregularity November invalid subject n3 trade theory electrical transcript  the result of assessment was note release reason irregularity n3.subject n4 .subject fail druip result February 2022 .directorate assessment  transcript material .statement affidavit   submitted st peace college registrar shalom technical and afric institute college  no result outcome .after 15 days was result scaling n1.n2.n3but statement didn’t come out not print out by registrations resonement inconvenient. Arbitrary irregularity on February i submitted topics saqa qcto dhet email result of saqa documentation; filing dbe dhet .the committed was under investigation  soon to finalize .
+
+ 
+
+2.   I received to dhet committed assessment  examinations  irregularities the retain
+
+, invalid subject 23 February 2022   the time table of n3 subject administration exam with those subject trade . electrical trade theory .4 subject November 2023 examination  dthe result statement  for last examination was not print outcome  n1.n2 submitted n3 last time table exam only last n4 exam statement print outcome and not time table for n6.,n5 received in examinations November  suspension is 11 month for irregularity .follow tvet guideline assessment. Exam over the date insurance body frameworks qualification and labour department  uif coid claim no outcome in career portal was outcome granted  national fund skill for extra subject topics irregularity written qcto practical was not granted  scope portal research qcto .
+
+3.  allegation result statement  retain dhet .;saqa n diploma n diplomat application for n4.6 diplomat final was no granted n4.level 4 diploma icass years college in my portfolio submitted on line marked exam n5.n6.subject additional assessment information  by institution isat icass.
+
+Ref outcome saqa result
+
+16 jan 2023 on line marischen masoga  send submission number  foreign institute inquiries 9370.
+
+Foreign institutions inquiries 6594
+
+Section 29(a) policy criteria saqa nqf amended march 2017 institute ...framework nqf  foreign award must meet  for recognize.
+
+Saqa accepted only qualifications official examination body country ..external examination based , 26 july 2022.
+
+4.allegation to qcto retain on ; saturday22 january 2022. ; with regard  n certificate  direction  dhet education training (for n4_n6 n diploma or umalusi n3 can not assist with qcto issued  
+
+Sat ..10 march 203 qcto .certificate@qcto.org.za  answer soc please note that the qcto does not issue any of results 
+
+-lindiwe grace 28 may 2023 inquire to national and assessment college .i have copied our QA unit  they will be able to respond to accordingly regard
+
+Qcto  khuluvhe  labour market intelligences  lmi esteemed stakeholder  21 aug 2023 was not grantee
+
+ 
+
+-4 . i receiving   Allegation to saqa retain on.10 march 2023  procedure for evaluation  pro forma invoice .copy id passport. Copy final award graduation certificate. Copy of completed transcript mark sheet academic record. Proof payment   if not meetings requirements can resubmitted again.non compliant; 27 July 2021 application above doe s not meet saqa 
+
+Final award school diploma degree certificate in 48h .
+
+-that my requested letter to the authority minister for my result statement certificate  over the date review n diploma 24 month.18 month nated examination  to resolve problem after examination irregularities materiel that final result n4 and new re certificate body insurance investigation result center assessment  outcome  years icass total tvet  for my institute st peace college institute  and external certificate n1.n3  Afric training institute and shalom technical  collection  print out was not in my application for diploma response from dhet  submitted to resolve conflict assessment examination. 
+
+ 
+
+- your sincerely .
+
+Sign :Tshingombe Tshitadi 
+
+_________________________________
+
+ 
+
+ 
+
+ 
+Mail Delivery Subsystem
+	
+	Jan 3, 2024, 10:22 AM
+Address not found Your message wasn't delivered to tshigombekb@gmail.com because the address couldn't be found, or is unable to receive mail. LEARN MORE The res
+Mail Delivery Subsystem
+	
+	Jan 3, 2024, 10:22 AM
+Address not found Your message wasn't delivered to tena.m@dhet.gv.za because the domain dhet.gv.za couldn't be found. Check for typos or unnecessary spaces and
+Mail Delivery Subsystem
+	
+	Jan 3, 2024, 10:22 AM
+Address not found Your message wasn't delivered to lutuka.m@shet.go.za because the domain shet.go.za couldn't be found. Check for typos or unnecessary spaces an
+Mail Delivery Subsystem
+	
+	Jan 3, 2024, 10:22 AM
+Address not found Your message wasn't delivered to callcentre@dhet.gov because the domain dhet.gov couldn't be found. Check for typos or unnecessary spaces and
+Mail Delivery Subsystem
+	
+	Jan 3, 2024, 10:22 AM
+Message blocked Your message to maraba.a@dhet.gov.za has been blocked. See technical details below for more information. 550 5.4.1 Recipient address rejected: A
+postmaster@dst.gov.za
+	
+	Jan 3, 2024, 10:23 AM
+Your message to esther.rammultla@dst.gov.za couldn't be delivered. esther.rammultla wasn't found at dst.gov.za. tshingombefiston Office 365 esther.rammultla Act
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsWed, Jan 3, 10:23 AM
+	
+to tshigombekb, maraba.a, lundt.s@dhet.gov.za, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp, me
+
+
+ 9 Attachments  •  Scanned by Gmail
+Mail Delivery Subsystem
+	
+	Jan 3, 2024, 10:23 AM
+Address not found Your message wasn't delivered to lutuka.m@shet.go.za because the domain shet.go.za couldn't be found. Check for typos or unnecessary spaces an
+Mail Delivery Subsystem
+	
+	Jan 3, 2024, 10:23 AM
+Address not found Your message wasn't delivered to tena.m@dhet.gv.za because the domain dhet.gv.za couldn't be found. Check for typos or unnecessary spaces and
+Mail Delivery Subsystem
+	
+	Jan 3, 2024, 10:23 AM
+Address not found Your message wasn't delivered to callcentre@dhet.gov because the domain dhet.gov couldn't be found. Check for typos or unnecessary spaces and
+Mail Delivery Subsystem
+	
+	Jan 3, 2024, 10:23 AM
+Message blocked Your message to maraba.a@dhet.gov.za has been blocked. See technical details below for more information. 550 5.4.1 Recipient address rejected: A
+Mail Delivery Subsystem
+	
+	Jan 3, 2024, 10:23 AM
+Address not found Your message wasn't delivered to tshigombekb@gmail.com because the address couldn't be found, or is unable to receive mail. LEARN MORE The res
+postmaster@dst.gov.za
+	
+	AttachmentsJan 3, 2024, 10:23 AM
+Your message to esther.rammultla@dst.gov.za couldn't be delivered. esther.rammultla wasn't found at dst.gov.za. tshingombefiston Office 365 esther.rammultla Act
+Mail Delivery Subsystem
+	
+	Jan 4, 2024, 11:05 AM
+Delivery incomplete There was a temporary problem delivering your message to modiba.d@dhet.co.za. Gmail will retry for 47 more hours. You'll be notified if the
+Mail Delivery Subsystem
+	
+	Jan 4, 2024, 12:36 PM
+Delivery incomplete There was a temporary problem delivering your message to modiba.d@dhet.co.za. Gmail will retry for 45 more hours. You'll be notified if the
+tshingombe fiston
+	
+	Jan 4, 2024, 12:43 PM
+ASSET TRACKING Name: tshingombe tshitadi Department: st peace college department engineering electrical All Assets engineering electrical time table Asset ID De
+Mail Delivery Subsystem
+	
+	Jan 4, 2024, 12:44 PM
+Address not found Your message wasn't delivered to tena.m@dhet.gv.za because the domain dhet.gv.za couldn't be found. Check for typos or unnecessary spaces and
+Mail Delivery Subsystem
+	
+	Jan 4, 2024, 12:44 PM
+Address not found Your message wasn't delivered to callcentre@dhet.gov because the domain dhet.gov couldn't be found. Check for typos or unnecessary spaces and
+Mail Delivery Subsystem
+	
+	Jan 4, 2024, 12:44 PM
+Address not found Your message wasn't delivered to lutuka.m@shet.go.za because the domain shet.go.za couldn't be found. Check for typos or unnecessary spaces an
+Mail Delivery Subsystem
+	
+	Jan 4, 2024, 12:44 PM
+Address not found Your message wasn't delivered to tshigombekb@gmail.com because the address couldn't be found, or is unable to receive mail. LEARN MORE The res
+Mail Delivery Subsystem
+	
+	Jan 4, 2024, 12:44 PM
+Message blocked Your message to maraba.a@dhet.gov.za has been blocked. See technical details below for more information. 550 5.4.1 Recipient address rejected: A
+postmaster@dst.gov.za
+	
+	Jan 4, 2024, 12:44 PM
+Your message to esther.rammultla@dst.gov.za couldn't be delivered. esther.rammultla wasn't found at dst.gov.za. tshingombefiston Office 365 esther.rammultla Act
+Mail Delivery Subsystem
+	
+	Jan 5, 2024, 10:50 AM
+Delivery incomplete There was a temporary problem delivering your message to modiba.d@dhet.co.za. Gmail will retry for 23 more hours. You'll be notified if the
+tshingombe fiston
+	
+	AttachmentsJan 5, 2024, 12:02 PM
+On Thu, Jan 4, 2024 at 12:43 PM tshingombe fiston <tshingombefiston@gmail.com> wrote: ASSET TRACKING Name: tshingombe tshitadi Department: st peace college depa
+Mail Delivery Subsystem
+	
+	Jan 5, 2024, 12:03 PM
+Address not found Your message wasn't delivered to lutuka.m@shet.go.za because the domain shet.go.za couldn't be found. Check for typos or unnecessary spaces an
+Mail Delivery Subsystem
+	
+	Jan 5, 2024, 12:03 PM
+Address not found Your message wasn't delivered to callcentre@dhet.gov because the domain dhet.gov couldn't be found. Check for typos or unnecessary spaces and
+Mail Delivery Subsystem
+	
+	Jan 5, 2024, 12:03 PM
+Address not found Your message wasn't delivered to tena.m@dhet.gv.za because the domain dhet.gv.za couldn't be found. Check for typos or unnecessary spaces and
+Mail Delivery Subsystem
+	
+	Jan 5, 2024, 12:03 PM
+Address not found Your message wasn't delivered to tshigombekb@gmail.com because the address couldn't be found, or is unable to receive mail. LEARN MORE The res
+Mail Delivery Subsystem
+	
+	Jan 5, 2024, 12:03 PM
+Message blocked Your message to maraba.a@dhet.gov.za has been blocked. See technical details below for more information. 550 5.4.1 Recipient address rejected: A
+postmaster@dst.gov.za
+	
+	AttachmentsJan 5, 2024, 12:03 PM
+Your message to esther.rammultla@dst.gov.za couldn't be delivered. esther.rammultla wasn't found at dst.gov.za. tshingombefiston Office 365 esther.rammultla Act
+Mail Delivery Subsystem
+	
+	Jan 5, 2024, 1:06 PM
+Delivery incomplete There was a temporary problem delivering your message to modiba.d@dhet.co.za. Gmail will retry for 21 more hours. You'll be notified if the
+Mail Delivery Subsystem
+	
+	Jan 5, 2024, 1:11 PM
+Delivery incomplete There was a temporary problem delivering your message to modiba.d@dhet.co.za. Gmail will retry for 47 more hours. You'll be notified if the
+Mail Delivery Subsystem
+	
+	Jan 6, 2024, 12:13 PM
+Message not delivered There was a problem delivering your message to modiba.d@dhet.co.za. See the technical details below. LEARN MORE The response was: The reci
+Mail Delivery Subsystem
+	
+	Jan 6, 2024, 12:44 PM
+Message not delivered There was a problem delivering your message to modiba.d@dhet.co.za. See the technical details below. LEARN MORE The response was: The reci
+Mail Delivery Subsystem
+	
+	Jan 6, 2024, 2:03 PM
+Delivery incomplete There was a temporary problem delivering your message to modiba.d@dhet.co.za. Gmail will retry for 45 more hours. You'll be notified if the
+Mail Delivery Subsystem
+	
+	Jan 6, 2024, 2:34 PM
+Delivery incomplete There was a temporary problem delivering your message to modiba.d@dhet.co.za. Gmail will retry for 22 more hours. You'll be notified if the
+Mail Delivery Subsystem
+	
+	Jan 7, 2024, 3:31 PM
+Delivery incomplete There was a temporary problem delivering your message to modiba.d@dhet.co.za. Gmail will retry for 20 more hours. You'll be notified if the
+Mail Delivery Subsystem
+	
+	Jan 7, 2024, 3:38 PM
+Message not delivered There was a problem delivering your message to modiba.d@dhet.co.za. See the technical details below. LEARN MORE The response was: The reci
+tshingombe fiston
+	
+	Jan 8, 2024, 11:46 AM
+SUBJECTS TERM1 TERM2 TERM3 TERM4 TOTAL First Additional Language Life Orientation Mathematics or Mathematical Literacy Vocationel subject1 Vocationel subject2 V
+Mail Delivery Subsystem
+	
+	Jan 8, 2024, 11:46 AM
+Address not found Your message wasn't delivered to lutuka.m@shet.go.za because the domain shet.go.za couldn't be found. Check for typos or unnecessary spaces an
+Mail Delivery Subsystem
+	
+	Jan 8, 2024, 11:46 AM
+Address not found Your message wasn't delivered to tena.m@dhet.gv.za because the domain dhet.gv.za couldn't be found. Check for typos or unnecessary spaces and
+Mail Delivery Subsystem
+	
+	Jan 8, 2024, 11:46 AM
+Address not found Your message wasn't delivered to callcentre@dhet.gov because the domain dhet.gov couldn't be found. Check for typos or unnecessary spaces and
+Mail Delivery Subsystem
+	
+	Jan 8, 2024, 11:46 AM
+Address not found Your message wasn't delivered to tshigombekb@gmail.com because the address couldn't be found, or is unable to receive mail. LEARN MORE The res
+Mail Delivery Subsystem
+	
+	Jan 8, 2024, 11:46 AM
+Message blocked Your message to maraba.a@dhet.gov.za has been blocked. See technical details below for more information. 550 5.4.1 Recipient address rejected: A
+postmaster@dst.gov.za
+	
+	Jan 8, 2024, 11:47 AM
+Your message to esther.rammultla@dst.gov.za couldn't be delivered. esther.rammultla wasn't found at dst.gov.za. tshingombefiston Office 365 esther.rammultla Act
+Mail Delivery Subsystem
+	
+	Jan 8, 2024, 12:24 PM
+Message not delivered There was a problem delivering your message to modiba.d@dhet.co.za. See the technical details below. LEARN MORE The response was: ----- Me
+Mail Delivery Subsystem
+	
+	Jan 9, 2024, 12:00 PM
+Delivery incomplete There was a temporary problem delivering your message to modiba.d@dhet.co.za. Gmail will retry for 47 more hours. You'll be notified if the
+Mail Delivery Subsystem
+	
+	Jan 10, 2024, 3:01 PM
+Delivery incomplete There was a temporary problem delivering your message to modiba.d@dhet.co.za. Gmail will retry for 20 more hours. You'll be notified if the
+Mail Delivery Subsystem
+	
+	Jan 11, 2024, 4:12 PM
+Message not delivered There was a problem delivering your message to modiba.d@dhet.co.za. See the technical details below. LEARN MORE The response was: The reci
+tshingombe fiston
+	
+	Feb 7, 2024, 8:04 AM
+Hello dears .
+Mail Delivery Subsystem
+	
+	Feb 7, 2024, 8:04 AM
+Address not found Your message wasn't delivered to callcentre@dhet.gov because the domain dhet.gov couldn't be found. Check for typos or unnecessary spaces and
+Mail Delivery Subsystem
+	
+	Feb 7, 2024, 8:04 AM
+Address not found Your message wasn't delivered to lutuka.m@shet.go.za because the domain shet.go.za couldn't be found. Check for typos or unnecessary spaces an
+Mail Delivery Subsystem
+	
+	Feb 7, 2024, 8:04 AM
+Address not found Your message wasn't delivered to tshigombekb@gmail.com because the address couldn't be found, or is unable to receive mail. LEARN MORE The res
+Mail Delivery Subsystem
+	
+	Feb 7, 2024, 8:04 AM
+Address not found Your message wasn't delivered to tena.m@dhet.gv.za because the domain dhet.gv.za couldn't be found. Check for typos or unnecessary spaces and
+Mail Delivery Subsystem
+	
+	Feb 7, 2024, 8:04 AM
+Message blocked Your message to maraba.a@dhet.gov.za has been blocked. See technical details below for more information. 550 5.4.1 Recipient address rejected: A
+postmaster@dst.gov.za
+	
+	Feb 7, 2024, 8:04 AM
+Your message to esther.rammultla@dst.gov.za couldn't be delivered. esther.rammultla wasn't found at dst.gov.za. tshingombefiston Office 365 esther.rammultla Act
+tshingombe fiston
+	
+	Feb 7, 2024, 8:12 AM
+On Tue, 26 Dec 2023, 12:25 tshingombe fiston, <tshingombefiston@gmail.com> wrote: Application Ref :Applications letter number : 2023/1226_______________________
+Mail Delivery Subsystem
+	
+	Feb 7, 2024, 8:13 AM
+----- Message truncated -----
+Mail Delivery Subsystem
+	
+	Feb 7, 2024, 8:13 AM
+Address not found Your message wasn't delivered to info@stpeacecolllege.co.za because the domain stpeacecolllege.co.za couldn't be found. Check for typos or unn
+Mail Delivery Subsystem
+	
+	Feb 7, 2024, 8:13 AM
+Address not found Your message wasn't delivered to lutuka.m@shet.go.za because the domain shet.go.za couldn't be found. Check for typos or unnecessary spaces an
+Mail Delivery Subsystem
+	
+	Feb 7, 2024, 8:13 AM
+Address not found Your message wasn't delivered to study@stpeacecollege.co.za because the domain stpeacecollege.co.za couldn't be found. Check for typos or unne
+Mail Delivery Subsystem
+	
+	Feb 7, 2024, 8:13 AM
+Address not found Your message wasn't delivered to tshigombekb@gmail.com because the address couldn't be found, or is unable to receive mail. LEARN MORE The res
+Mail Delivery Subsystem
+	
+	Feb 7, 2024, 8:13 AM
+Address not found Your message wasn't delivered to callcentre@dhet.gov because the domain dhet.gov couldn't be found. Check for typos or unnecessary spaces and
+Mail Delivery Subsystem
+	
+	Feb 7, 2024, 8:13 AM
+Message blocked Your message to csd.info@csd.gov.za has been blocked. See technical details below for more information. 550 5.4.1 Recipient address rejected: Ac
+Mail Delivery Subsystem
+	
+	Feb 7, 2024, 8:13 AM
+Message blocked Your message to maraba.a@dhet.gov.za has been blocked. See technical details below for more information. 550 5.4.1 Recipient address rejected: A
+Mail Delivery Subsystem <mailer-daemon@googlemail.com>
+	
+Feb 7, 2024, 8:13 AM
+	
+to me
+Error Icon
+Message blocked
+Your message to esther.rammultla@dst.gov.za has been blocked. See technical details below for more information.
+The response from the remote server was:
+
+550 5.4.1 Recipient address rejected: Access denied. [CPT0EPF00000719.ZAFP275.PROD.OUTLOOK.COM 2024-02-07T06:13:03.881Z 08DC227A491C74CC]
+tshingombe fiston
+	
+	Feb 7, 2024, 8:14 AM
+On Thu, 04 Jan 2024, 12:43 tshingombe fiston, <tshingombefiston@gmail.com> wrote: ASSET TRACKING Name: tshingombe tshitadi Department: st peace college departme
+Mail Delivery Subsystem
+	
+	Feb 7, 2024, 8:14 AM
+Address not found Your message wasn't delivered to study@stpeacecollege.co.za because the domain stpeacecollege.co.za couldn't be found. Check for typos or unne
+Mail Delivery Subsystem
+	
+	Feb 7, 2024, 8:14 AM
+Address not found Your message wasn't delivered to callcentre@dhet.gov because the domain dhet.gov couldn't be found. Check for typos or unnecessary spaces and
+Mail Delivery Subsystem
+	
+	Feb 7, 2024, 8:14 AM
+Address not found Your message wasn't delivered to lutuka.m@shet.go.za because the domain shet.go.za couldn't be found. Check for typos or unnecessary spaces an
+Mail Delivery Subsystem
+	
+	Feb 7, 2024, 8:14 AM
+Address not found Your message wasn't delivered to tena.m@dhet.gv.za because the domain dhet.gv.za couldn't be found. Check for typos or unnecessary spaces and
+Mail Delivery Subsystem
+	
+	Feb 7, 2024, 8:14 AM
+Address not found Your message wasn't delivered to info@stpeacecolllege.co.za because the domain stpeacecolllege.co.za couldn't be found. Check for typos or unn
+Mail Delivery Subsystem
+	
+	Feb 7, 2024, 8:14 AM
+Address not found Your message wasn't delivered to tshigombekb@gmail.com because the address couldn't be found, or is unable to receive mail. LEARN MORE The res
+Mail Delivery Subsystem <mailer-daemon@googlemail.com>
+	
+Feb 7, 2024, 8:14 AM
+	
+to me
+Error Icon
+Message blocked
+Your message to csd.info@csd.gov.za has been blocked. See technical details below for more information.
+The response from the remote server was:
+
+550 5.4.1 Recipient address rejected: Access denied. [DB3PEPF0000885E.eurprd02.prod.outlook.com 2024-02-07T06:14:51.380Z 08DC2257D17BF350]
+Mail Delivery Subsystem
+	
+	Feb 7, 2024, 8:14 AM
+Message blocked Your message to maraba.a@dhet.gov.za has been blocked. See technical details below for more information. 550 5.4.1 Recipient address rejected: A
+Mail Delivery Subsystem <mailer-daemon@googlemail.com>
+	
+Feb 7, 2024, 8:14 AM
+	
+to me
+Error Icon
+Message blocked
+Your message to esther.rammultla@dst.gov.za has been blocked. See technical details below for more information.
+The response from the remote server was:
+
+550 5.4.1 Recipient address rejected: Access denied. [CPT0EPF0000071A.ZAFP275.PROD.OUTLOOK.COM 2024-02-07T06:14:52.534Z 08DC2376913B6B08]
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Feb 7, 2024, 9:29 PM
+	
+to tshigombekb, maraba.a, lundt.s, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp, registrarphei, me
+Appeal .process  academics
+Section
+-Student Name:tshingombe tshitadi
+-Qualification : saqa record academic institution name: foreign .st peace
+ -college name: st peace college
+-Year of graduation:2020 to 2024 
+:management system information academic year: policy dhet ..policy number: saqa cat yet 
+Policy st peace college quality system manage qms
+.lms 
+- referral registrar attandance  :Record   irregularities material transcript and script submission statement and evidence years 2022   ,11 months   feb 2023   register roll  academics college basic and advance  nqf policy criteria 
+_______________________________________
+1.Letter  record academic and transcript academic :
+Consenting :asking to provide detail fir reasin course attended topics  mark earner apply and refistrar keepinf  record
+
+ .-FROM:TSHINGOMBE TSHITADI 
+
+   TO: THE DHET DEPUTY MINISTER  .               MEMBERS OF ACADEMIC RECORD 
+
+    SAQA  AND COLLEGE RECTORAT INSTITUT 
+SUB : Dear : my name is  tshingimbe and i attended event from to  in there rwite to request for my transcript  to apply for futher aduation i wish to express my sincer gratitude to your education  i wish to express  my sincer gratitude to your dhet college  thing which have helped me in my  profession. I wish to take studies at  foreign institut saqa and college education advanced  field continuing assessment professional  institution  has requirements  a full transcript from my former studies to check my eligibility  to studie the course i hope saqa to start my studie on and the dealnje to submit the the requested  document  is kindlt send the transcript  at your earliest so that i  an submjt the documents on time i herbrey provide my student identif6 number end of birbe you access my file quickly  kindlt send the transcrip to my home please t .
+-in effect of irregularities transcript material februarie 2022 need submission statement  dhet  full  completion  and finalise marks  out term  that honor for me to be part of this excellent  institution  since mention period feel proud and privileges  to informer that due to the high standards  of education  imported by this institution  secure institution  workplace soon noining process i would be great ful to you if you colomb sending  me the requested do i graduation  years .
+I hereby  requested  foil transcrip i eas students in journes from i graduate  alumn of estemed successful career engineering  experience cvs  on line student  research. 
+
+-----------------------------------------------------------
+Section  : 
+Ref:  to maintaining  record of academic  achievement  dhet .st peace college  in saqa in order to  maintaining  acurate system  student record lesson transcript  student .
+-student record : attendance  dhet and nated  years  and saqa years entry national frameworks qualification award degre diplomat  graduation. Enrol course in st peace college. 
+-academics  performance record keep track ..studdnts progress formal and informal assessment .portofolio
+Topics system 
+-Authors :tshingombe tshitadi: loyality 
+ research papper college system. Management 
+-methodology: description login  topics and research topic college'son lines admnito upload information  stuent to view marks exam .
+-advantages :the software verifications on line topics in trade national examination informal and  poe s  icass submitted on line  framework qualification.nqf submittedinformationsuplementairy need to be record earn reward hondstly ..
+Result procdssing collegd need to try  again and consol inspector information  management systems
+-consol textbooks  n1,n6 permit consol fire script  audit material exam scan over the time dowload need to be record  registration storage restoration 
+- registrar next stepped  record keeping earn reward honestly  intellectual  value credit challenges  loyal compensation  nated body frameworks qualification  textbook cooking amandment pay  information need reward return on line microsoft database system collection  and record process casebook bsaqa book  examination topics  .reward need amandment R5000 copyright textbook exam papper exam submitted need to returned explanation  .textbook olding reviewers  retrieview  answering exam papper need to be recording  because studets topics framework challenge textbook answering textbook dissertation  on line consol result statement. 
+Thank u for sincerely. 
+Mail Delivery Subsystem
+	
+	Feb 7, 2024, 9:30 PM
+Address not found Your message wasn't delivered to tena.m@dhet.gv.za because the domain dhet.gv.za couldn't be found. Check for typos or unnecessary spaces and
+tshingombe fiston
+	
+	Feb 7, 2024, 9:32 PM
+Hello dears..
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsFeb 9, 2024, 10:36 AM
+	
+to me, tshigombekb, maraba.a, lundt.s@dhet.gov.za, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp
+
+
+ One attachment  •  Scanned by Gmail
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsFeb 9, 2024, 11:22 AM
+	
+to me, tshigombekb, maraba.a, lundt.s@dhet.gov.za, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp
+
+Welcome to Learner Profiler for Central Johannesburg TVET College
+
+Inbox
+
+https://ssl.gstatic.com/ui/v1/icons/mail/profile_mask2.png
+
+Learner Profiler <noreply@learnerprofiler.com>
+	
+
+Jan 10, 2024, 7:41 PM
+
+	
+
+
+	
+	
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+Dear Tshingombe Tshitadi,
+
+Welcome to Learner Profiler for Central Johannesburg TVET College. Thank you for registering.
+
+To use the system login here with the details given during your registration.
+
+Access URL: https://learnerprofiler.com/
+Client Code: cjc18stl
+Email/Username: tshingombefiston@gmail.com
+
+In case of forgetting the password it can be recovered by going here.
+
+Have you applied for a government bursary? For NSFAS application, please click here.
+
+PLEASE NOTE THAT THIS IS AN AUTOMATED SYSTEM AND YOU SHOULD NOT WRITE TO THIS EMAIL ADDRESS. IF YOU HAVE A QUESTION, PLEASE CONTACT YOUR INSTITUTION SUPPORT TEAM.
+
+Thanks,
+
+Learner Profiler
+
+11
+
+https://lh3.googleusercontent.com/a/default-user=s40-p
+
+Mail Delivery Subsystem
+	
+	
+
+Jan 14, 2024, 2:19 PM
+
+Message not delivered There was a problem delivering your message to modiba.d@dhet.co.za. See the technical details below. LEARN MORE The response was: The reci
+
+https://ssl.gstatic.com/ui/v1/icons/mail/profile_mask2.png
+
+Mabasa, Thembani <Mabasa.T@dhet.gov.za>
+	
+
+AttachmentsJan 19, 2024, 10:03 AM
+
+
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+Good day
+
+ 
+
+We received your placement test results from the Central Johannesburg TVET College system. The test recommends that you reconsider your qualification choices and look at short skills programmes.
+
+ 
+
+TVET Colleges offers skills programmes that you can consider as alternative qualification to gain skills. The skills can help you gain employment or to be self employed.
+
+ 
+
+Please ask at the college about their skills programmes and apply for admission.
+
+ 
+
+Best Regards
+
+Mabasa T
+
+DHET Career Development Services
+
+ 
+
+ 
+
+ 
+
+ 
+
+From: tshingombe fiston <tshingombefiston@gmail.com>
+Sent: Thursday, January 11, 2024 12:24 PM
+To: Learner Profiler <noreply@learnerprofiler.com>; info@nsfas.org.za <info@nsfas.org.za>; modiba.d@dhet.co.za <modiba.d@dhet.co.za>; callcentre@dhet.gov <callcentre@dhet.gov>; CareerHelp <CareerHelp@dhet.gov.za>
+Subject: Re: Welcome to Learner Profiler for Central Johannesburg TVET College
+
+ 
+
+	
+
+You don't often get email from tshingombefiston@gmail.com. Learn why this is important
+	
+
+ 
+
+ 
+
+<a href="https://lear
+
+...
+
+Ticket #Z1RNQ: Career Choice
+
+Inbox
+
+9160256+Z1RNQ@tickets.livechatinc.com
+	
+
+Thu, Jan 11, 3:30 PM
+
+	
+
+
+	
+	
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+ 
+
+Your ticket has been created.
+
+ 
+
+ 
+
+ 
+	
+
+https://ci3.googleusercontent.com/meips/ADKq_NbnB5N5oJ9HaoWiSyayhK_QIXhUeKUqr3-BcMiBq615lq2HqUfDSPPsYoHDLD4icRI-xnQeAZcz3cpr5k_FoSeFp92G-W0Dv6OYKoJgPf5YFgiwl7pO6tOXqIx8CztaKvTzneBPcQ=s0-d-e1-ft#https://cdn.livechat-files.com/api/file/lc/main/default/logo/sz2tt7jpJ6VJwBo.pngCareer Choice
+	
+
+ 
+
+ 
+
+	
+	
+
+ 
+
+ 
+
+ 
+
+ 
+	
+
+tshingombe
+
+ 
+	
+
+Thu, 01/11/24 1:29 pm
+	
+	
+	
+	
+
+ 
+	
+	
+	
+
+ 
+	
+
+Chat transcript:
+----------
+Name: tshingombe
+Contact number: 0725298946
+E-mail: tshingombefiston@gmail.com
+Gender Male
+Are you a Student
+----------
+Harriet Magolego (Thu, 1/11/2024, 01:40:55 pm Africa/Johannesburg)
+Welcome to the Career Development Services LiveChat. How can we help you today?
+
+tshingombe (Thu, 1/11/2024, 01:42:05 pm)
+hi
+	
+	
+	
+	
+
+ 
+	
+	
+	
+
+
+
+
+
+	
+
+Chat now 💬
+	
+	
+
+Powered by HelpDesk
+	
+
+
+ 
+
+https://ssl.gstatic.com/ui/v1/icons/mail/profile_mask2.png
+
+9160256+Z1RNQ@tickets.livechatinc.com
+	
+
+Thu, Jan 11, 3:30 PM
+
+
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+ 
+
+Your ticket is now solved!
+
+ 
+
+ 
+
+ 
+	
+
+https://ci3.googleusercontent.com/meips/ADKq_NbnB5N5oJ9HaoWiSyayhK_QIXhUeKUqr3-BcMiBq615lq2HqUfDSPPsYoHDLD4icRI-xnQeAZcz3cpr5k_FoSeFp92G-W0Dv6OYKoJgPf5YFgiwl7pO6tOXqIx8CztaKvTzneBPcQ=s0-d-e1-ft#https://cdn.livechat-files.com/api/file/lc/main/default/logo/sz2tt7jpJ6VJwBo.pngCareer Choice
+	
+
+ 
+
+ 
+
+	
+	
+
+ 
+
+ 
+
+ 
+
+ 
+	
+
+https://ci3.googleusercontent.com/meips/ADKq_NZS1RpA6TReN91QZ3swYH9CUnUl2U9rXq0RTyeNa472QsS95vaHahav-g3SNpEjpLJw0UlRh5e2NFDYqbOTI3vlH01cMxSrWoFUc6HEEBiBymZ1Wdn0uKe1cccD0NJXHtDJyzBSBiZ6eaG4CVRAKfTgjzVc8yeg12RC=s0-d-e1-ft#https://cdn.livechat-static.com/api/file/lc/img/default/avatars/ab5b0666feffd67600206cd519fd77ea.jpg
+	
+
+ 
+	
+
+Harriet Magolego
+
+ 
+	
+
+Thu, 01/11/24 1:30 pm
+	
+	
+	
+	
+
+ 
+	
+	
+	
+
+ 
+	
+
+Good day Tshingombe
+
+Thank you for contacting the Career Development Services (CDS): Helpline.
+Please note that CDS offers information and advice on career and educational matters.
+The email is a chat follow-up which was not concluded but acknowledged. We apologise for the late response. Your profile indicates that you are a student. I wanted to make a follow-up to understand how you could be assisted. however, I have shared information regarding subject choice and career choice, Post school institutions and financial assistance.
+Would appreciate if you could share with me more careers that you would like to know more about or that you would like to pursue, while doing that, please address the follow:
+The grade your currently doing;
+Your subject choice and;
+Your academic performance.
+
+Please note that choosing career is an important step which may determine how your life will be like in future. It is also important that you should take time to know yourself better in order to make an informed career choice. The process of making an informed career choice begins with creating your career vision, therefore it is a lifelong journey. There are some important factors you should consider when making a career choice. That is your interests, strengths and abilities, values and personality, just to name a few.
+
+It is therefore critical that you have the right information about the career that you are interested in. In addition, you need to think about the subjects you enjoy doing the most and consider your academic performance and achievements in your subjects.
+
+You should know what you enjoy doing and what careers appeal to you. Please consider completing an interest questionnaire which will assist or direct you to the specific fields that are more suitable for you: http://ncap.careerhelp.org.za/login?ReturnUrl=%2fquestionnaire
+Note that you will need to register as a user first and then continue with the exercise. Click on “Not Registered” to register.
+The following links have more information on careers linking them to specific subjects as well exercises that you can take to assist direct your choices effectively:
+• NCAP (Careers categorised in career/ subject field fields): http://ncap.careerhelp.org.za/Subject/StartWizard
+• NCAP: http://ncap.careerhelp.org.za/Subject/Index
+• NCAP Subjects linked to career fields: http://ncap.careerhelp.org.za/Subject/StartWizard
+• Pace Career: http://www.pacecareers.com/resources/making%20subject%20choices.pdf
+• Go Study: https://www.gostudy.net/img/author/326fdda6-55bf-4c1e-9c79-ded669886033/medium/subject-choice-project-for-grade-9.pdf?id=1b5f2681-cc09-4dab-8419-c5532852add2
+• CareerPrep: http://careerprep.co.za/subjects/
+
+Make sure that you are aware of all the post-school options available to you and how you can access them:
+
+List of universities in South Africa, please check the minimum admission requirements form university prospectus or information booklet (Please check the closing dates as most universities will be closing around September /October):
+
+http://www.dhet.gov.za/SiteAssets/New%20site%20Documents/Universities%20in%20South%20Africa1.pdf
+
+Please find a list of TVET Colleges and check their courses, I would really encourage you check the link as you will be able to pursue you studies at the College with low results in Mathematics:
+
+http://www.dhet.gov.za/SitePages/Inst_TVET1.aspx
+
+Please check the following websites links for possible funding opportunities:
+Please note that NSFAS will reopen soon for 2024 academic year.
+http://www.nsfas.org.za/content/
+Other bursaries:
+https://www.careerhelp.org.za/funding
+https://www.gostudy.net/bursaries
+
+Please find a list of TVET Colleges and check their courses.
+
+http://www.dhet.gov.za/SitePages/Inst_TVET1.aspx
+
+Kind regards
+HM Magolego
+Career Development & Open Learning
+Email: CareerHelp@dhet.gov.za
+TEL: 086 999 0123
+123 Francis Baard Street
+Private Bag X174
+Pretoria 0001
+	
+	
+	
+	
+
+ 
+	
+	
+	
+
+ 
+
+ 
+
+ 
+
+ 
+	
+
+tshingombe
+
+ 
+	
+
+Thu, 01/11/24 1:29 pm
+	
+	
+	
+	
+
+ 
+	
+	
+	
+
+ 
+	
+
+Chat transcript:
+----------
+Name: tshingombe
+Contact number: 0725298946
+E-mail: tshingombefiston@gmail.com
+Gender Male
+Are you a Student
+----------
+Harriet Magolego (Thu, 1/11/2024, 01:40:55 pm Africa/Johannesburg)
+Welcome to the Career Development Services LiveChat. How can we help you today?
+
+tshingombe (Thu, 1/11/2024, 01:42:05 pm)
+	
+	
+	
+
+ 
+ 24 Attachments  •  Scanned by Gmail
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Feb 9, 2024, 1:56 PM
+	
+to me, tshigombekb, maraba.a, lundt.s@dhet.gov.za, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp
+I,_____________________ (STUDENTNAME), __tshingombe _______________(STUDENT
+NUMBER), am fully aware that the programme I have enrolled on, that is, the Bachelor of
+Arts (FULL TITLE OF PROGRAMME/QUALIFICATION) with SAQA ID:
+_n diploma engineering electrical ___________________ (SAQA/QUALIFICATION ID), is registered with the
+Department of Higher Education and Training to ____st peace colllege _______________ (NAME OF
+INSTITUTION), as indicated on the registration certificate dated _2020_____________
+(DATE ON CERTIFICATE). The declaration must be signed by both parties and dated.
+A sample copy of the declaration signed by students must be attached. Copies signed by
+students will be requested from the institution if and when the need arises
+
+listed below. Fill in this form and submit it with your annual report.
+REQUIRED
+INFORMATION
+SUBMITTED
+YES / NO
+INSTITUTION’
+S COMMENTS
+FOR OFFICE
+USE ONLY
+Form APX-03:
+Annual Report Form
+Annexure A:
+Articles of Association as issued by
+the Companies and Intellectual
+Property Commission (CIPC)
+Annexure B1:
+The disclosure certificate as issued by
+the CIPC for Directors who have
+resigned
+Annexure B2:
+The disclosure certificate as issued by
+the CIPC for Directors who have been
+appointed
+Annexure C:
+The letter from the Chairperson of the
+Board
+Annexure D:
+Registration certificate as a Private
+College issued by the Department.
+Annexure E:
+Auditor’s report on student data
+Annexure F:
+Graduation Booklets
+Annexure G:
+Auditor’s report on programmes
+Annexure H:
+SAQA report on programmes
+Annexure I1:
+Termination of agreement with other
+institutions
+Annexure I2:
+Entering into a new agreement
+Annexure I3:
+Amendments to existing agreements
+Annexure J:
+Compliance with the requirements of
+the HEQC
+Annexure K:
+Compliance with the regulations
+relating to the health and safety of
+persons37
+
+REQUIRED
+INFORMATION
+SUBMITTED
+YES / NO
+INSTITUTION’
+S COMMENTS
+FOR OFFICE
+USE ONLY
+Annexure L:
+Evidence on non-discrimination on the
+basis of race
+Annexure M:
+Proof of maintenance of financial
+surety or guarantee
+Annexure N:
+Audited annual financial statements
+Annexure O:
+Record of academic achievement
+Annexure P:
+Issuance of transcripts of academic
+records
+Annexure Q:
+Issuance of certificates
+Annexure R:
+The National Learner’s Records
+Database (NLRD)
+Annexure S:
+Sample copy of an enrolment and
+application form
+Annexure T:
+Institutional prospectus, calendar and
+brochure
+Annexure U:
+Official documents, marketing and
+advertising material
+Annexure V:
+Register of students’ complains and
+grievances
+Annexure W:
+Evidence in respect of the continued
+fulfilment of the conditions
+of registration
+Annexure X:
+Maintenance of the risk analysis and
+management strategy
+Annexure Y:
+Tax Clearance Certificate
+Annexure Z:
+Premises not listed on re
+...
+
+[Message clipped]  View entire message
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Feb 9, 2024, 1:59 PM
+	
+to me, tshigombekb, maraba.a, lundt.s@dhet.gov.za, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp
+Weighting of courses for Certificate X / n diploma engineering 
+Courses in curriculum Weighting of courses
+Course A or course B 20%
+Course C 15%
+Course D or course E or course F 10%
+Course G 25%
+Course H or course I 8%
+Course J or course K or course L 22%
+TOTAL 10
+Table 3
+Certificate X: FTE Successful Students
+Courses in
+Curriculum
+Census day
+enrolments
+Credit value of the
+course
+FTE student
+Total
+Course A 30 0, 30 9
+Course B 150 0,30 45
+Course C 50 0,22 11
+Course D 60 0,15 9
+Course E 75 0,15 11,25
+Course F 120 0,15 18
+Course G 40 0,37 14,8
+Course H 25 0,12 3
+Course I 31 0,12 3,72
+Course J 20 0,34 6,8
+Course K 22 0,34 7,48
+Course L 44 0,34 14,96
+TOTAL 154,01
+Calculating success rates
+Success rates for a qualification are calculated by dividing the total number of full-time
+equivalent (FTE) students passing the courses for a qualification by the FTE total of
+students enrolled for the courses for that qualification. As a first step, a calculation of this
+kind has to be made (again using the example of certificate X):
+Table 4
+Certificate X: FTE student enrolments
+Courses in
+Curriculum
+Students passing
+course
+Credit value of the
+course
+FTE successful
+student total
+Course A 18 0,30 5,4
+Course B 105 0,30 31,5
+Course C 40 0,22 8,8
+Course D 45 0,15 6,75
+Course E 30 0,15 4,5
+Course F 90 0,15 13,5
+Course G 35 0,37 12,95
+Course H 15 0,12 1,8
+Course I 23 0,12 2,76
+Course J 15 0,34 5,1
+Course K 11 0,34 3,7426
+
+Course L 35 0,34 11,9
+TOTAL 108,7
+The weighted average success rate for certificate X would be the FTE successful student
+total divided by the FTE enrolled student total = 108,7/154,01 = 70%.
+REPORTING HEADCOUNT AND FULL-TIME EQUIVALENT STAF
+
+...
+
+[Message clipped]  View entire message
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Feb 9, 2024, 2:01 PM
+	
+to registrarphei, me, tshigombekb, maraba.a, lundt.s@dhet.gov.za, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Feb 9, 2024, 2:14 PM
+	
+to confirmations, dfqeas, verification, saqainfo, me, tshigombekb, maraba.a, lundt.s@dhet.gov.za, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp
+...
+
+[Message clipped]  View entire message
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsFeb 12, 2024, 11:03 AM
+	
+to me, tshigombekb, maraba.a, lundt.s@dhet.gov.za, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp
+
+An.n3 .in the relevant specialization area  communication nqf level 4 in language teaching ..theoretical knowl2 and practical skills required and learning of institution offering . To be award the award qualification  learners are to choose  complete .business studie 0.5 years business studies .
+
+.N4 o.5 years duration  60 cresits ..n5 (0.5 year duration )60 credit .n6 . 0.5 years duration  60 . 18 month practical .in casev years duration  engineering  studies .n4 ( 0.33 years duration) 40 creditb. N5 (0.33 years duration ) 40 credits .N6 ( 0.33 year duration) 40 credit ..24 momts practical  experience.
+
+N diploma  360 credit  .180 awarded to experiential training  business studie ..programme code n diploma engineering  studie .electrical engineering. NQF qualification ID: 90674 .national engineering  studies electrical engineering. NQF level 6; 360 credit credit . Saqa learning  programme . N .
+
+ 
+
+ 
+
+ 
+
+ 
+
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+
+Wed, Feb 7, 9:29 PM (5 days ago)
+
+	
+
+
+	
+	
+	
+
+to tshigombekb, maraba.a, lundt.s, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp, registrarphei, me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+ 
+
+ 
+
+ 
+
+ 
+
+Weighting of courses  
+
+ Certificate  engingering studie  / n diploma engineering 
+
+Course in circulum
+	
+
+Weighting of courses
+
+Industrial  electronics                    n1
+	
+
+ 
+
+Engineering  drawing                     n1
+	
+
+ 
+
+Electrical trade theory                   n1
+	
+
+ 
+
+Mathematics n1
+	
+
+ 
+
+Industrial  electronics                    n1
+	
+
+ 
+
+Electrical trade theory                   n1
+	
+
+ 
+
+Mathematics                                 n1
+	
+
+ 
+
+ 
+
+N2  SCALING PLACEMENT
+	
+
+ 
+
+Industriel  electronics                    n3
+	
+
+ 
+
+Electronical  trade  theory             n3
+	
+
+ 
+
+Enginering  science                         n3
+	
+
+ 
+
+Electro- technology                         n3
+	
+
+ 
+
+ 
+
+-Industrial  orientation                     n3
+
+-plant operation theory                   n3
+
+-electro –technology                        n3
+
+-electrical trade theory                    n3
+
+ 
+
+ 
+	
+
+ 
+
+Electrotechnichnics  n4
+	
+
+ 
+
+Industrial electronics n4
+	
+
+ 
+
+Enginering  science  n4
+	
+
+ 
+
+Mathematics   n4
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+
+ 
+
+ 
+
+Certificate
+
+Courses in
+Curriculum
+	
+
+Census day
+enrolments
+
+	
+
+Credit value of the
+course
+
+	
+
+FTE student
+Total
+
+Industrial  electronics                    n1
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Engineering  drawing                     n1
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Electrical trade theory                   n1
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Mathematics n1
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Industrial  electronics                    n1
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Electrical trade theory                   n1
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Mathematics                                 n1
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+ 
+
+N2  SCALING PLACEMENT
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Industriel  electronics                    n3
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+...
+
+[Message clipped]  View entire message
+ One attachment  •  Scanned by Gmail
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsFeb 12, 2024, 11:45 AM
+	
+to confirmations, verification, dfqeas, saqainfo, me, tshigombekb, maraba.a, lundt.s@dhet.gov.za, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp
+Logged in as Tsh tshingombe
+Home
+New application
+- Evaluation
+Current applications
+- View
+Edit user account
+- Contact details
+- Change password
+Talk to us
+Logout
+Welcome Tshingombe tshingombe
+
+Please choose an option from the menu.
+
+Your comments, either on this facility or on our service in general, is always welcome and will help us to continuously improve. Talk to us, also if you have any enquiries.
+Recent applications
+Submission No 	Name 	Date 	Status 	Electronic Certificate
+202207085055 	Tshitadi Tshingombe 	2024-02-12 11:36 	Submitted 	
+202211165081 	fiston tshingombe 	2023-06-03 09:56 	Pending Document(s) 	
+202303115021 	Tshitadi Fiston Tshingombe Tshitadi 	2023-03-11 13:45 	Pending Document(s) 	
+202207125014 	tshitadi tshingombe 	2023-01-16 13:31 	Pending Document(s
+...
+
+[Message clipped]  View entire message
+ One attachment  •  Scanned by Gmail
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsFeb 12, 2024, 12:28 PM
+	
+to me, tshigombekb, maraba.a, lundt.s@dhet.gov.za, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp, confirmations, verification, dfqeas, saqainfo
+...
+
+[Message clipped]  View entire message
+ One attachment  •  Scanned by Gmail
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsFeb 13, 2024, 12:04 PM
+	
+to me, tshigombekb, maraba.a, lundt.s@dhet.gov.za, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp, confirmations, verification, dfqeas, saqainfo
+...
+
+[Message clipped]  View entire message
+ 13 Attachments  •  Scanned by Gmail
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsFeb 15, 2024, 10:23 AM
+	
+to me, tshigombekb, maraba.a, lundt.s@dhet.gov.za, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp, confirmations, verification, dfqeas, saqainfo
+
+Application 
+
+Ref: Applications letter   number: 2023/1226
+
+____________________________________
+
+ADRESS: PRIVATE BAG X 174, PRETORIA 0001
+
+123 FRANCIS BAARD STREET PRETORIA
+
+TEL: 0123235618
+
+______________________________________
+
+ENQUIRY NUMBER: 
+
+DHET: 
+
+DOCKET NUMBER: 2023/1226
+
+INFORMATION MANAGEMENT SYSTEM 
+
+- INSTITUT COLLEGE NAME: ST PEACE COLLEGE
+
+-ID: NUMBER: TIRC0G000910610
+
+-REGISTRATION NUMBER: STUDENT -CO70040101099
+
+-SARS VAT NUMBER: 923228238
+
+-MERSETA: 17_QA/ACC/1311/17
+
+-SAQA REGISTRAR STUDENT NUMBER: 210020223812, 2004007064382.
+
+-email address: tshingombekb@gmail.com
+
+-Alternate email address: tshingombefiston@gmail.com
+
+ 
+
+ 
+
+________________________________________
+
+APPEAL DECISSION RESULT RELEASE:
+
+APPLICATION NUMBER:
+
+Saga: institute foreign .saga transcription meeting  71638 dry Congo requirements  graduate award diploma knife  .high certificate no meeting .leave school .expended assessments  .exam  d teat diploma .certificate  professional .certificate informatics mathematic vs. offices  ; result outcome  primary status registration saga asset 09121 .saqa institute 30_ 39 no assess policy.IE099 ,saqa  id 67q0 certificate advance phase teach .n1 saqa id 63375.id 67491 entrance
+
+ .n diplomat 
+
+-Qualification title national N diplomat engineering. 
+
+-nqf level:6 .
+
+-date submitted to dhet :1105/2023
+
+-date process.
+
+DHET 
+
+-Timetable /50111002 
+
+-N1: engineering studies
+
+-ID: 2004007064381
+
+-ID: 2100002023812
+
+ 
+
+________________________________________
+
+Dear .mar minister of education duet and deputy member of duet .vet college examination directorate and authority competencies. Government’s president 
+
+I' mar tshingombe tshitadi ;acknowledge student st peace college candidate examination career student follow course in duty of nated in rsa 2019 to 2024 ,  i 'm appear  to your department goverment institution  for allegation view no result of statement id candidat engineering  n1.,n2, n,3,n4  ,n3 and n diplomat  saqa outcom in irregularity  final n5.n6  /nqf 6.
+
+ Examination national examination was not delivery in the time external assessments commited irregularities. 
+
+ 
+
+1.my motivation and disciplinary assessment submitted my portfolio on line portal duet release resultant statement and finalized award diplomat by examination committed irregularity November invalided subject n3 trade theory electricakbtranscript  the result of assessment was note release reason irregularity n3.subject n4 .subject fail druip result February 2022 .directorate assessment  transcript material .statement affidavit submitted sty peace college registrar shalom technical and agric institute college  no result outcome .after 15 days was result scaling n1.n2.n3but statement didn’t come out not print out by registrations resentment inconvenient. Arbitrary irregularity on February I submitted topics saga cot dhet email result of saqa documentation; filing dbe dhet .the committed was under investigation soon to finalize.
+
+ 
+
+2. I received to duet committed assessment examinations irregularities the retain
+
+, invalided subject 23 February 2022   the time table of n3 subject administration exam with those subject trade. electrical trade theory .4 subject November 2023 examination  rhea result statement  for last examination was not print outcome  n1.n2 submitted n3 last time table exam only last n4 exam statement print outcome and not time table for n6.,n5 received in examinations November  suspension is 11 month for irregularity .follow vet guideline assessment. Exam over the date insurance body frameworks qualification and labor department  if could claim no outcome in career portal was outcome granted  national fund skill for extra subject topics irregularity written cot practical was not granted  scope portal research cot .
+
+3.allegation result statement  retain duet .;saga n diploma n diplomat application for n4.6 diplomat final was no granted n4.level 4 diploma ices years college in my portfolio submitted on line marked exam n5.n6.subject additional assessment information  by institution is at ices.
+
+Ref outcome saga result
+
+16 Jan 2023 on line maraschino massage send submission number foreign institute inquiries 9370.
+
+Foreign institutions inquiries 6594
+
+Section 29(a) policy criteria saga knife amended march 2017 institute ...framework nqf foreign award must meet for recognize.
+
+Saqa accepted only qualifications official examination body country...external examination based, 26 July 2022.
+
+4. Allegation to qcto retain on; saturday22 January 2022. ; With regard  n certificate direction dhet education training (for n4_n6 n diploma or umlauts n3 can not assist with qcto issued  
+
+Sat ..10 march 203 l .certificate@qcto.org.za  answer soc please note that the qcto does not issue any of results 
+
+-lindiwe grace 28 may 2023 inquire to national and assessment college .i have copied our QA unit  they will be able to rspond to accorlingly regardc
+
+Qcto  khuluvhe  labour market intelligences  lmi esteemed stakeholder  21 aug 2023 was not grante
+
+ 
+
+- i receiving   Allegation to saqa retain on.10 march 2023  procedure for evaluatiin  pro forma invoice .copy id passport.copy final award graduation certificate. Copy of completed transcript mark sheet academic record.proof payment   if not meetings requirements can resubmitted again.non compliant; 27 july 2021 application above doe s not meet saqa 
+
+Final award school diploma degre certificate in 48h .
+
+-that my requested letter to the authority minister for my result statement certificat  over the date review n diploma 24 month.18 month nated examination  to resolve problem after examination irregularities materiel that final result n4 and new re certificate body insurence investigation result center assessment  outcome  years icass total tvet  for my institute st peace college institu  and externsl certificate n1.n3  afric training institute and shalom technical  collection  print out was not in my application for diploma response from dhet  submitted to resolve conflic assessment examination. 
+
+ 
+
+- Your sincerely.
+
+Sign :Tshingombe Tshitadi 
+
+_________________________________
+
+ 
+
+An.n3 .in the relevant specialization area communication nqf level 4 in language teaching  ...theoretical knowl2 and practical skills required and learning of institution offering. To be award the award qualification learners are to choose complete .business studies 0.5 years business studies.
+
+.N4 o.5 year’s duration 60 cresits  ...n5 (0.5 year duration) 60 credit .n6. 0.5 years duration 60. 18 month practical .in casev years duration  engineering  studies .n4 ( 0.33 years duration) 40 creditb. N5 (0.33 years duration ) 40 credits .N6 ( 0.33 year duration) 40 credit ..24 momts practical  experience.
+
+N diploma  360 credit  .180 awarded to experiential training  business studie ..programme code n diploma engineering  studie .electrical engineering. NQF qualification ID: 90674 .national engineering  studies electrical engineering. NQF level 6; 360 credit credit . Saqa learning  programme . N .
+
+ 
+
+ 
+
+ 
+
+ 
+
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+
+Wed, Feb 7, 9:29 PM (5 days ago)
+
+	
+
+
+	
+	
+	
+
+to tshigombekb, maraba.a, lundt.s, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, career help, registrarphei, me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+Appeal .process  academics
+
+Section
+
+-Student Name:tshingombe tshitadi
+
+-Qualification : saqa record academic institution name: foreign .st peace
+
+ -college name: st peace college
+
+-Year of graduation:2020 to 2024 
+
+:management system information academic year: policy dhet ..policy number: saqa cat yet 
+
+Policy st peace college quality system manage qms
+
+.lms 
+
+- referral registrar attandance  :Record   irregularities material transcript and script submission statement and evidence years 2022   ,11 months   feb 2023   register roll  academics college basic and advance  nqf policy criteria 
+
+_______________________________________
+
+1.Letter  record academic and transcript academic :
+
+Consenting :asking to provide detail fir reasin course attended topics  mark earner apply and refistrar keepinf  record
+
+ 
+
+ .-FROM:TSHINGOMBE TSHITADI 
+
+ 
+
+   TO: THE DHET DEPUTY MINISTER  .               MEMBERS OF ACADEMIC RECORD 
+
+ 
+
+    SAQA  AND COLLEGE RECTORAT INSTITUT 
+
+SUB : Dear : my name is  tshingimbe and i attended event from to  in there write to request for my transcript  to apply for father adulation i wish to express my sincere gratitude to your education  i wish to express  my sincere gratitude to your dhet college  thing which have helped me in my  profession. I wish to take studies at  foreign institut saga and college education advanced  field continuing assessment professional  institution  has requirements  a full transcript from my former studies to check my eligibility  to studies the course i hope saqa to start my studie on and the dealnje to submit the the requested  document  is kindly send the transcript  at your earliest so that i  an submit the documents on time i herbed provide my student identif6 number end of birbe you access my file quickly  kindlt send the transcrip to my home please t .
+
+-in effect of irregularities transcript material februarie 2022 need submission statement  dhet  full  completion  and finalise marks  out term  that honor for me to be part of this excellent  institution  since mention period feel proud and privileges  to informer that due to the high standards  of education  imported by this institution  secure institution  workplace soon noining process i would be great ful to you if you colomb sending  me the requested do i graduation  years .
+
+I hereby  requested  foil transcrip i eas students in journes from i graduate  alumn of estemed successful career engineering  experience cvs  on line student  research. 
+
+ 
+
+-----------------------------------------------------------
+
+Section  : 
+
+Ref:  to maintaining  record of academic  achievement  dhet .st peace college  in saqa in order to  maintaining  acurate system  student record lesson transcript  student .
+
+-student record: attendance dhet and nated years and saqa years entry national frameworks qualification award degre diplomat graduation. Enroll course in sty peace college. 
+
+-academics performance record keep track...studdnts progress formal and informal assessment .portofolio
+
+Topics system 
+
+-Authors :tshingombe tshitadi: loyalty 
+
+ Research pepper college system. Management 
+
+-methodology: description login topics and research topic college ‘son lines admit upload information student to view marks exam.
+
+-advantages :the software verifications on line topics in trade national examination informal and  poi s  ices submitted on line  framework qualification.nqf submitted information  supplementary  need to be record earn reward honestly ..
+
+Result processing college need to try  again and consol inspector information  management systems
+
+-consol textbooks  n1,n6 permit consol fire script  audit material exam scan over the time download need to be record  registration storage restoration 
+
+- registrar next stepped  record keeping earn reward honestly  intellectual  value credit challenges  loyal compensation  anted body frameworks qualification  textbook cooking amendment pay  information need reward return on line Microsoft database system collection  and record process casebook basal book  examination topics  .reward need amendment R5000 copyright textbook exam pepper exam submitted need to returned explanation  .textbook folding reviewers  retrieve  answering exam pepper need to be recording  because students topics framework challenge textbook answering textbook dissertation  on line consol result statement. 
+
+Thank u for sincerely. 
+
+ 
+
+ 
+
+ 
+
+ 
+
+Weighting of courses 
+
+ Certificate  engineering studies  / n diploma engineering 
+
+Course in circular
+	
+
+Weighting of courses
+
+Industrial  electronics                    n1
+	
+
+ 
+
+Engineering  drawing                     n1
+	
+
+ 
+
+Electrical trade theory                   n1
+	
+
+ 
+
+Mathematics n1
+	
+
+ 
+
+Industrial  electronics                    n1
+	
+
+ 
+
+Electrical trade theory                   n1
+	
+
+ 
+
+Mathematics                                 n1
+	
+
+ 
+
+ 
+
+N2  SCALING PLACEMENT
+	
+
+ 
+
+Industrial  electronics                    n3
+	
+
+ 
+
+Electronically  trade  theory             n3
+	
+
+ 
+
+Engineering  science                         n3
+	
+
+ 
+
+Electro- technology                         n3
+	
+
+ 
+
+ 
+
+-Industrial  orientation                     n3
+
+-plant operation theory                   n3
+
+-electro –technology                        n3
+
+-electrical trade theory                    n3
+
+ 
+
+ 
+	
+
+ 
+
+Electrotechnichnics  n4
+	
+
+ 
+
+Industrial electronics n4
+	
+
+ 
+
+Enginering  science  n4
+	
+
+ 
+
+Mathematics   n4
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+	
+
+ 
+
+ 
+
+ 
+
+ 
+
+Certificate
+
+Courses in
+Curriculum
+	
+
+Census day
+enrolments
+
+	
+
+Credit value of the
+course
+
+	
+
+FTE student
+Total
+
+Industrial  electronics                    n1
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Engineering  drawing                     n1
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Electrical trade theory                   n1
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Mathematics n1
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Industrial  electronics                    n1
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Electrical trade theory                   n1
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Mathematics                                 n1
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+ 
+
+N2  SCALING PLACEMENT
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Industrial  electronics                    n3
+	
+
+ 
+	
+
+0.33
+	
+
+1
+
+Electronical  trade  theory             n3
+	
+
+...
+
+[Message clipped]  View entire message
+ One attachment  •  Scanned by Gmail
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsFeb 15, 2024, 10:29 AM
+	
+to me, tshigombekb, maraba.a, lundt.s@dhet.gov.za, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp, confirmations, verification, dfqeas, saqainfo
+...
+
+[Message clipped]  View entire message
+ One attachment  •  Scanned by Gmail
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsFeb 27, 2024, 10:14 AM
+	
+to verifications, me, tshigombekb, maraba.a, lundt.s@dhet.gov.za, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp, confirmations, verification, dfqeas, saqainfo
+...
+
+[Message clipped]  View entire message
+ One attachment  •  Scanned by Gmail
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsFeb 27, 2024, 10:16 AM
+	
+to president, info, info, Central, info, study, Microsoft, me, tshigombekb, maraba.a, lundt.s@dhet.gov.za, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp, confirmations, verification, dfqeas, saqainfo, verifications
+
+Re: New submission from Transcript Request Form
+
+Inbox
+
+https://lh3.googleusercontent.com/cm/AGPWSu9f-W12WdtlEzJgOI8OJtLBJXJ7gWAJXGV6lakHZ6RBfcqy7bk-BQm8oVJraTjg=s40-p
+
+Yolandi Gerber
+	
+
+9:51 AM (9 minutes ago)
+
+	
+
+
+	
+	
+	
+
+to me, sylvia, akotze
+
+Good day Tshingombe
+
+ 
+
+Thank you for completing our request form.
+
+ 
+
+Unfortunately, we will not be able to assist you with your academic transcripts as you have not completed any academic studies at our educational institution.
+
+For any academic transcript request, you would be required to reach out to the education institute with whom you completed your qualifications.
+
+ 
+
+Do let me know if I can be of further assistance
+
+ 
+
+Kind Regards,
+
+ 
+
+YOLANDI GERBER
+
+Student Liaison 
+
+First Aid Lead
+
+ 
+
+https://ci3.googleusercontent.com/meips/ADKq_NY6P_sTbuZjvR0me_HlZu_np9AZk7hZH1hWSO0PxbipUyF4HcPMu1Cf_H7wdISFq7NBwk0ppc6PEDjYCEjI1td9cxkXoSu-3c4Ks7Fbfdt5pl894LJOhRA=s0-d-e1-ft#http://www.openwindow.co.za/wp-content/uploads/2018/02/logo_ow.png
+
+ 
+
+	
+
+www.openwindow.co.za
+
+
+T 012-648 9200 
+
+F 012-665 0253 
+
+
+
+Open Window is a private higher education institution in South Africa, offering honors, degrees, certificates, and workshops in the arts and digital sciences. 
+We pride ourselves on being named the best creative educational institution by the Loeries® Annual Rankings.
+
+ 
+
+Twitter: @open_window_
+Instagram: @openwindowinstitute 
+
+Facebook: Open Window  
+Youtube: Channel
+
+The information contained in this communication is confidential and may be legally privileged it is intended for the sole use of the individual or entity to whom it is addressed or copied. 
+If you are not the intended recipient, you are notified that any disclosure, copying, distribution, or taking action in reliance on the contents of this communication and its attachments are strictly prohibited and will be unlawful.
+
+ 
+
+ 
+
+On Tue, 27 Feb 2024 at 09:33, kevin@openwindow.co.za <kevin@openwindow.co.za> wrote:
+
+Name
+
+ 
+	
+
+tshingombe tshitadi
+
+Phone
+
+ 
+	
+
+(072) 529-8946
+
+Email
+
+ 
+	
+
+tshingombefiston@gmail.com
+
+Student Number
+
+ 
+	
+
+2,100,002,023,812
+
+Passport Number
+
+ 
+	
+
+TIRC0G000910610
+
+Qualification (We can only supply transcripts if you studied at Open Window.)
+
+ 
+	
+
+Bachelor of Arts Honours in Visual Communication
+
+Year Completed
+
+ 
+	
+
+2,023
+
+Please provide a description of your requirements
+
+ 
+	
+
+Application Ref: Applications letter number: 2023/1226 ____________________________________ ADRESS: PRIVATE BAG X 174, PRETORIA 0001 123 FRANCIS BAARD STREET PRETORIA TEL: 0123235618 ______________________________________ ENQUIRY NUMBER: DHET: DOCKET NUMBER: 2023/1226 INFORMATION MANAGEMENT SYSTEM - INSTITUT COLLEGE NAME: ST PEACE COLLEGE -ID: NUMBER: TIRC0G000910610 -REGISTRATION NUMBER: STUDENT -CO70040101099 -SARS VAT NUMBER: 923228238 -MERSETA: 17_QA/ACC/1311/17 -SAQA REGISTRAR STUDENT NUMBER: 210020223812, 2004007064382. -email address: tshingombekb@gmail.com -Alternate email address: tshingombefiston@gmail.com ________________________________________ APPEAL DECISSION RESULT RELEASE: APPLICATION NUMBER: Saga: institute foreign .saga transcription meeting 71638 dry Congo requirements graduate award diploma knife .high certificate no meeting .leave school .expended assessments .exam d teat diploma .certificate professional .certificate informatics mathematic vs. offices ; result outcome primary status registration saga asset 09121 .saqa institute 30_ 39 no assess policy.IE099 ,saqa id 67q0 certificate advance phase teach .n1 saqa id 63375.id 67491 entrance .n diplomat -Qualification title national N diplomat engineering. -nqf level:6 . -date submitted to dhet :1105/2023 -date process. DHET -Timetable /50111002 -N1: engineering studies -ID: 2004007064381 -ID: 2100002023812 ________________________________________ Dear .mar minister of education duet and deputy member of duet .vet college examination directorate and authority competencies. Government’s president I' mar tshingombe tshitadi ;acknowledge student st peace college candidate examination career student follow course in duty of nated in rsa 2019 to 2024 , i 'm appear to your department goverment institution for allegation view no result of statement id candidat engineering n1.,n2, n,3,n4 ,n3 and n diplomat saqa outcom in irregularity final n5.n6 /nqf 6. Examination national examination was not delivery in the time external assessments commited irregularities. 1.my motivation and disciplinary assessment submitted my portfolio on line portal duet release resultant statement and finalized award diplomat by examination committed irregularity November invalided subject n3 trade theory electricakbtranscript the result of assessment was note release reason irregularity n3.subject n4 .subject fail druip result February 2022 .directorate assessment transcript material .statement affidavit submitted sty peace college registrar shalom technical and agric institute college no result outcome .after 15 days was result scaling n1.n2.n3but statement didn’t come out not print out by registrations resentment inconvenient. Arbitrary irregularity on February I submitted topics saga cot dhet email result of saqa documentation; filing dbe dhet .the committed was under investigation soon to finalize. 2. I received to duet committed assessment examinations irregularities the retain , invalided subject 23 February 2022 the time table of n3 subject administration exam with those subject trade. electrical trade theory .4 subject November 2023 examination rhea result statement for last examination was not print outcome n1.n2 submitted n3 last time table exam only last n4 exam statement print outcome and not time table for n6.,n5 received in examinations November suspension is 11 month for irregularity .follow vet guideline assessment. Exam over the date insurance body frameworks qualification and labor department if could claim no outcome in career portal was outcome granted national fund skill for extra subject topics irregularity written cot practical was not granted scope portal research cot . 3.allegation result statement retain duet .;saga n diploma n diplomat application for n4.6 diplomat final was no granted n4.level 4 diploma ices years college in my portfolio submitted on line marked exam n5.n6.subject additional assessment information by institution is at ices. Ref outcome saga result 16 Jan 2023 on line maraschino massage send submission number foreign institute inquiries 9370. Foreign institutions inquiries 6594 Section 29(a) policy criteria saga knife amended march 2017 institute ...framework nqf foreign award must meet for recognize. Saqa accepted only qualifications official examination body country...external examination based, 26 July 2022. 4. Allegation to qcto retain on; saturday22 January 2022. ; With regard n certificate direction dhet education training (for n4_n6 n diploma or umlauts n3 can not assist with qcto issued Sat ..10 march 203 l .certificate@qcto.org.za answer soc please note that the qcto does not issue any of results -lindiwe grace 28 may 2023 inquire to national and assessment college .i have copied our QA unit they will be able to rspond to accorlingly regardc Qcto khuluvhe labour market intelligences lmi esteemed stakeholder 21 aug 2023 was not grante - i receiving Allegation to saqa retain on.10 march 2023 procedure for evaluatiin pro forma invoice .copy id passport.copy final award graduation certificate. Copy of completed transcript mark sheet academic record.proof payment if not meetings requirements can resubmitted again.non compliant; 27 july 2021 application above doe s not meet saqa Final award school diploma degre certificate in 48h . -that my requested letter to the authority minister for my result statement certificat over the date review n diploma 24 month.18 month nated examination to resolve problem after examination irregularities materiel that final result n4 and new re certificate body insurence investigation result center assessment outcome years icass total tvet for my institute st peace college institu and externsl certificate n1.n3 afric training institute and shalom technical collection print out was not in my application for diploma response from dhet submitted to resolve conflic assessment examination. - Your sincerely. Sign :Tshingombe Tshitadi _________________________________ An.n3 .in the relevant specialization area communication nqf level 4 in language teaching ...theoretical knowl2 and practical skills required and learning of institution offering. To be award the award qualification learners are to choose complete .business studies 0.5 years business studies. .N4 o.5 year’s duration 60 cresits ...n5 (0.5 year duration) 60 credit .n6. 0.5 years duration 60. 18 month practical .in casev years duration engineering studies .n4 ( 0.33 years duration) 40 creditb. N5 (0.33 years duration ) 40 credits .N6 ( 0.33 year duration) 40 credit ..24 momts practical experience. N diploma 360 credit .180 awarded to experiential training business studie ..programme code n diploma engineering studie .electrical engineering. NQF qualification ID: 90674 .national engineering studies electrical engineering. NQF level 6; 360 credit credit . Saqa learning programme . N . tshingombe fiston <tshingombefiston@gmail.com> Wed, Feb 7, 9:29 PM (5 days ago) to tshigombekb, maraba.a, lundt.s, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, career help, registrarphei, me Appeal .process academics Section -Student Name:tshingombe tshitadi -Qualification : saqa record academic institution name: foreign .st peace -college name: st peace college -Year of graduation:2020 to 2024 :management system information academic year: policy dhet ..policy number: saqa cat yet Policy st peace college quality system manage qms .lms - referral registrar attandance :Record irregularities material transcript and script submission statement and evidence years 2022 ,11 months feb 2023 register roll academics college basic and advance nqf policy criteria _______________________________________ 1.Letter record academic and transcript academic : Consenting :asking to provide detail fir reasin course attended topics mark earner apply and refistrar keepinf record .-FROM:TSHINGOMBE TSHITADI TO: THE DHET DEPUTY MINISTER . MEMBERS OF ACADEMIC RECORD SAQA AND COLLEGE RECTORAT INSTITUT SUB : Dear : my name is tshingimbe and i attended event from to in there write to request for my transcript to apply for father adulation i wish to express my sincere gratitude to your education i wish to express my sincere gratitude to your dhet college thing which have helped me in my profession. I wish to take studies at foreign institut saga and college education advanced field continuing assessment professional institution has requirements a full transcript from my former studies to check my eligibility to studies the course i hope saqa to start my studie on and the dealnje to submit the the requested document is kindly send the transcript at your earliest so that i an submit the documents on time i herbed provide my student identif6 number end of birbe you access my file quickly kindlt send the transcrip to my home please t . -in effect of irregularities transcript material februarie 2022 need submission statement dhet full completion and finalise marks out term that honor for me to be part of this excellent institution since mention period feel proud and privileges to informer that due to the high standards of education imported by this institution secure institution workplace soon noining process i would be great ful to you if you colomb sending me the requested do i graduation years . I hereby requested foil transcrip i eas students in journes from i graduate alumn of estemed successful career engineering experience cvs on line student research. ----------------------------------------------------------- Section : Ref: to maintaining record of academic achievement dhet .st peace college in saqa in order to maintaining acurate system student record lesson transcript student . -student record: attendance dhet and nated years and saqa years entry national frameworks qualification award degre diplomat graduation. Enroll course in sty peace college. -academics performance record keep track...studdnts progress formal and informal assessment .portofolio Topics system -Authors :tshingombe tshitadi: loyalty Research pepper college system. Management -methodology: description login topics and research topic college ‘son lines admit upload information student to view marks exam. -advantages :the software verifications on line topics in trade national examination informal and poi s ices submitted on line framework qualification.nqf submitted information supplementary need to be record earn reward honestly .. Result processing college need to try again and consol inspector information management systems -consol textbooks n1,n6 permit consol fire script audit material exam scan over the time download need to be record registration storage restoration - registrar next stepped record keeping earn reward honestly intellectual value credit challenges loyal compensation anted body frameworks qualification textbook cooking amendment pay information need reward return on line Microsoft database system collection and record process casebook basal book examination topics .reward need amendment R5000 copyright textbook exam pepper exam submitted need to returned explanation .textbook folding reviewers retrieve answering exam pepper need to be recording because students topics framework challenge textbook answering textbook dissertation on line consol result statement. Thank u for sincerely. Weighting of courses Certificate engineering studies / n diploma engineering Course in circular Weighting of courses Industrial electronics n1 Engineering drawing n1 Electrical trade theory n1 Mathematics n1 Industrial electronics n1 Electrical trade theory n1 Mathematics n1 N2 SCALING PLACEMENT Industrial electronics n3 Electronically trade theory n3 Engineering science n3 Electro- technology n3 -Industrial orientation n3 -plant operation theory n3 -electro –technology n3 -electrical trade theory n3 Electrotechnichnics n4 Industrial electronics n4 Enginering science n4 Mathematics n4 Certificate Courses in Curriculum Census day enrolments Credit value of the course FTE student Total Industrial electronics n1 0.33 1 Engineering drawing n1 0.33 1 Electrical trade theory n1 0.33 1 Mathematics n1 0.33 1 Industrial electronics n1 0.33 1 Electrical trade theory n1 0.33 1 Mathematics n1 0.33 1 N2 SCALING PLACEMENT 0.33 1 Industrial electronics n3 0.33 1 Electronical trade theory n3 0.33 1 Enginering science n3 0.33 1 Electro- technology n3 0.33 1 -Industrial orientation n3 -plant operation theory n3 -electro –technology n3 -electrical trade theory n3 0.33 1 Electrotechnichnics n4 Industrial electronics n4 Enginering science n4 Mathematics n4 Subjects/ course circulum weight Scale topic/ tot COMPLETED YEARS / HOMEWORK CLASS WORK credit N Diploma Nqf 360 credit 360 Industrial electronics n1 - 100% ; 100% 0,30 y Engineering drawing n1 - 100 %; 100% 0,30 Electrical trade theory n1 - 100%; 100% 0,30 Mathematics n1 100% ; 100% 0,30 0,30 Industrial electronics n1 -,- 100% ; 100% 0.30 Electrical trade theory n1 -,- 100 %; 100% 0.30 Mathematics n1 -,- 100%; 100% 0,30 N2 SCALING PLACEMENT Industriel electronics n3 100%; 100% 0.30 Electronical trade theory n3 100%; 100% 0,30 Enginering science n3 100%; 100% 0.30 Electro- technology n3 100%,100% 0.30 -Industrial orientation n3 -plant operation theory n3 -electro –technology n3 -electrical trade theory n3 48% 19% 55% 27% 100% ;148% 100% ;119% 100% ;155% 100% ;127% Electrotechnichnics n4 18% 100% ;118% 0.30 Industrial electronics n4 19% 100% ;119% 0.30 Enginering science n4 35% 100% ;135% 0.30 Mathematics n4 30% 100% ;130% 0.30 Sub total credit qualifie Award certificate diplomat 251% 1900 %; 1751% 0.30x16 Irregularity final mark Subject : n3,n4,n5,n6 Scrip material evidence low assessment Progress marker N3 final certificate Electronical trade theory n3 - 100% ,100% 0.30 Electrotechnichnics n4 - 100% ; 100% 0.30 Industrial electronics n4 - 100% ; 100% 0.30 Engineering science n4 - 100% ; 100% 0.30 Mathematics n4 -- 100% , 100% 0.30 Electrotechnichnics n5 - 100% , 100% 0.30 Industrial electronics n5 - 100% ; 100% 0.30 Engineering science n5 - 100% ; 100% 0.30 Mathematics n5 - 100% ; 100% 0.30 Electrotechnichnics n6 - 100% ; 100% 0.30 Industrial electronics n6 - 100% ; 100% 0.30 Engineering science n6 - 100% ; 100% 0.30 Mathematics n6 - 100% ; 100% 0.30 Total rate For certificate Full tie equivalent 1300% +1800; 1300+1751 3051 % 1900 0,30 X 29 =9,57 PRATICAL PANEL WIRING ELECTRICAL , PLUMBING Total 100% 100% 200% Total practical theoretical equivalent N diploma engineering electrical value Record academic ACREDITTION N DIPLOMA, ID 67109 N, N1 ID 673575.N3 ID 66881, ID 66960, ID 67005 Required information Submitted yes not Institute comment For officer only Annual report form yes Good years Award Termination of agreement with other institute yes Good years Award The disclosure certificate as issued by the CIPC for Directors who have yes Good years Award - INSTITUT COLLEGE NAME :ST PEACE COLLEGE -ID: NUMBER: TIRC0G000910610 -REGISTRATION NUMBER: STUDENT -CO70040101099 -SARS VAT NUMBER: 923228238 -MERSETA : 17_QA/ACC/1311/17 -SAQA REGISTRAR STUDENT NUMBER:210020223812,2004007064382 Yes Yes Yes Yes Yes Yes Yes yes Good years Award Section 3. appeal process REPORT ON ERROR IN MARKING GUIDELINES -NAME OF MARKING CENTER : -AFRIC TRAINING COLLEGE . -PROVINCE; GAUTENG -NCVS . / SUST / ENGINEERING : N DIPLOMA ENGINEERING ELECTRICA,L N1 TO N 6 -EXAMINATION DATE : 2020 JUNE -SUBJECT AND PAPPER LEVEL : N1,N1 . -ID: 2004007064381 -ID: 2100002023812 -SECTION QUESTION DESCRIPTION OF ERROR RECOMMENDED AMANDEMENT : ERROR AFRIC TRAINING CENTER : allegation to mark s guideline enrolement center resulted submission mark term sheet on line data base system information student learner institution and college st peace college and afric institut police raining error re – marking icass internal asssessment submission afric training institu saqa institut foreign submission award institution no registered school framework database system from st peace college stationary evidence low portofolio and examination assessment marking sheet not accountabily in police system was accounting mark sheet and examination was submitted rerwitten in the center st peace college november resulted collection 2004 time table n2,was not coming to afric training center for reason afric institut police center was not enroled in mark guideline internal assessment was not approprieted stationary and marks out and retain session . -chief marker / internal moderator : mr benjamin , mrs jackson internal moderator , - number of marks affected …….was not marks . out / in to examination internal only 100% or award saqa enrolement n previouse pappers examination submitted Ekhurulenie college mark guideline , on line -motivation for : recommended ammendement internal assessment and police managemnt system st peace college record and saqa record award institut stpeace college and learnerd institut foreign development career dhet assesssment sector concilliation career outcom advice system in diploma rerwittent . kheta , topics assessment circulaire assemsnet police framework was enrole in success in career prospectuss . need examination center to recheck time table submission on line by call dhet application on line years .. SUBMITTED BY : TSHINGOMBE –TSHITADI -DATE : 2024/01/16 CONTACT DETAIL : 0725298946 EMAIL : TSHINGOMBEFISTONFISTON@GMAIL.COM NAME : DESIGNATION: TSHINGOMBE TSHITADI FISTON SIGNATURE DATE : TSHINGOMBE 2024/01/16 @ REPORT ON ERROR IN MARKING GUIDELINES -NAME OF MARKING CENTER : -SHALOM TECHNICAL COLLEGE -PROVINCE; GAUTENG -NCVS . / SUST / ENGINEERING : N DIPLOMA ENGINEERING ELECTRICA,L N1 TO N 6 -EXAMINATION DATE : 2022 FEBRUARIE , 2023 -SUBJECT AND PAPPER LEVEL Z N3/, N3, N4 ,n5,n6 -ID: 2004007064381 -ID: 2100002023812 -SECTION QUESTION DESCRIPTION OF ERROR RECOMMENDED AMANDEMNT : ERROR AFRIC TRAINING CENTER : allegation to final icass mark s guideline enrolement center resulted submission mark term sheet on line data base system information student learner institution and college st peace college and afric institut police raining error re – marking icass internal asssessment submission afric training institu saqa institut foreign submission award institution no registered school framework database system from st peace college stationary evidence low portofolio and examination assessment marking sheet not accountabily in police system was accounting mark sheet and examination was submitted rerwitten in the center st peace college november resulted collection 2004 time table n3 trade theory irregularity need to enrolement n6 affidavit and internal assessment time table for 11month suspension not 18 month suspension for enrolement v,was not coming to afric training center for reason afric training center was not enrole in mark guideline internal assessment was not appropriete stationary and marks out and retain session . -chief marker / internal moderator : mr benjamin , mrs jackson internal moderator , - number of marks affected …….was not marks . out / in to examination internal only 100% or award saqa enrolement n prevouse pappers examination submitted Ekhurulenie college mark guideline , on line -motivation for : recommended ammendement internal assessment and police managemnt system st peace college record and saqa record award institut stpeace college and learnerd institut foreign development career dhet assesssment sector concilliation career outcom advice system in diploma rerwittent . kheta , topics assessment circulaire assemsnet police framework was enrole in success in career prospectuss . need examination center to recheck time table submission on line by call dhet application on line years .. SUBMITTED BY : TSHINGOMBE –TSHITADI -DATE : 2024/01/16 CONTACT DETAIL : 0725298946 EMAIL : TSHINGOMBEFISTONFISTON@GMAIL.COM NAME : DESIGNATION: TSHINGOMBE TSHITADI FISTON SIGNATURE DATE : TSHINGOMBE 2024/01/16 MARKING PLAN FOR ENGINEERINRING STUDIE N1,N2,N3N,4,N5,N6,N DIPLOMA AND NC LEAVE - CONTACT DETAIL CELL : 0725298946 - EMAIL : TSHINGOMBEFISTON@GMAIL.COM - UNDERLINE FOR THE CONDUCT AND ADMNISTRATIO TVET COLLEGE - FULL REPORT DESCRIPTION Allegation to : Guideline for conduct and admnistration tvet examination MARKING IRREGULARITY REGISTER : SHALOM TECHNICAL COLLEGE PROVINCE : GAUTENG NAME OF COLLEGE : SHALOM TECHNICAL COLLEGE DATE : 10 /02/2020 NO CENTER NAME ID: 6666 - OFFERING SUBJECT ; n studie engineering / electrical engineering n diploma - Lever papper - Sheet no . - -category of irregularity as per irregularity form - Description of irregularity : script material sheet , examination allegation electrical trade theory in n4 examination subject final examination evidence base - Guideline conduct and admnistration of tvet college : st peace college quality managemnt system and shalom technical external assessment s, in st peace college conduct learner policy submission exam papper n5,n6 icass topics completed extra subject extra circulum and additionel information in time table st peace college materiel stationairy framework , enrolement n saqa nqf 6 framework submission 2022 test supplentatire assessemnt recording sheet learner self - assessement and peer assement and group circulum , -CHIEF DIRECTORATE DIRECTORATE FOR RE- MARK / RE-CHECK APPLICATION ENGINEERING N STUDIE N4,N5,N6 / NC(V) FINAL , RECHECK : INAL AWARD DIPLOMAT CERTIFICATE ENGINEERING N STUDIE , ASSESSMENT MARKING : -ID: 2004007064381 -ID: 2100002023812 SUBJECT N STUDIE , RE MARKED , AMOUNT PAID : R150. -CHIEF DIRECTORATE NATIONAL EXAMINATION OF ASSESSMENT : -ORDER FROM FOR EXAMINATION : MATERIAL SCRIPT ORDERING / AND EXTRAT MATERIAL CODE DESCRITIN QUANTITY ISSUE Boe Engineering n studie information sheet Boe Application for transfer of entry Boe Cycle semie log papper , abstract papper Boe Billing papper Boe Answer script papper Examin draw Boe Mathematics , n1to n6 Electrical trade theory Electrotechnics Electrotechnology Engineering sceience Plant operationel Industriel electronics Engineering drawing St peace college pappers internal learner Liste stationery : Item code , Balance store Prior ###### Mathematics , n1to n6 Electrical trade theory Electrotechnics Electrotechnology Engineering sceience Plant operationel Industriel electronics Engineering drawing Circulum statement / n diplomat engineering studie Yes /submit Not /submi Time table allocation subject N1.n2,n3,n4,n5,n6 Time table examination subject / N 1,n1,n3,n4,n4 Irregularity Daily College stationery Management system developent intro system scope , insurance conduct marker . -
+
+https://lh3.googleusercontent.com/a/ACg8ocLxvt4Gn8duYS30VQC2mmLnYhUHg0nzp-se7hWiwTiP=s40-p-mo
+	
+
+ 
+
+ 
+
+Automatic reply:
+
+Inbox
+
+https://lh3.googleusercontent.com/cm/AGPWSu8kP3C3vwLyag0Hrg2y6bcP6ajJjsDemOyNsrx3u4cXzkAZacAR8hQ-Ve7TaNcF=s40-p
+
+Transcript Requests
+	
+
+10:00 AM (3 minutes ago)
+
+	
+
+
+	
+	
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+Dear Client 
+
+ 
+
+Thank you for your e-mail. This mailbox received a high volume of queries and requests. All requests are treated as urgent and will be processed in the order that they are received. Please be aware if you email us multiple times it will renew your place in our email queue and it may delay our response time. 
+
+ 
+
+NOTICE: The Student Records Office will be closed for two South African public holidays on Monday, 25 December (Christmas Day) and Tuesday, 26 December (Day of Goodwill). The Office will re-open on Wednesday, 27 December from 08h30.
+
+ 
+
+The Student Records Office is open for collection of Graduation Certificates and Transcripts:
+
+
+
+Mondays and Tuesdays between 08h30 – 16h30 
+
+Wednesdays and Fridays between 08h30 - 15h30
+
+Thursdays between 09h30 - 16h30
+
+ 
+
+PLEASE NOTE: While we are able to verify whether a person has a specified qualification from UCT or not, we are not able to release to parents, guardians and other third parties any private information pertaining to current or past students' academic records, nor can we release copies of those academic records without written consent or proof of power of attorney, unless the disclosure complies with an obligation imposed by law.  
+
+   
+
+For Information about the Student Records Office and our services, please visit our website linked here: https://uct.ac.za/students/current-students-student-records/student-records-overview
+
+   
+
+TRANSCRIPTS: 
+
+Official Academic Transcripts can be requested and delivered by courier (arranged by our office) or collection on-campus. Please complete a transcript request form and return to our office with proof of payment. Please refer to the transcript request instructions: http://www.students.uct.ac.za/students/current-students/student-records/academic-records  
+
+ 
+
+AD HOC LETTERS 
+
+Our office writes and issues a number of different letters such as: proof of qualification, medium of instruction, amongst others. Please make sure to include your full name at the time of graduation, your UCT student number or date or birth when you request a letter.  Please submit your letter request directly to reg-records@uct.ac.za 
+
+GRADUATION QUERIES: For more information about graduation, please see the Graduation website for updates: http://www.students.uct.ac.za/students/current-students/graduation
+
+    
+
+VERIFICATIONS: All requests for third-party verifications must be sent to verifications@uct.ac.za 
+
+  
+
+Kind regards  
+
+Student Records Office  
+
+University of Cape Town  
+
+ 
+
+Location: Room 4.18, Level 4, Masingene Building, Cross Campus Road, Middle Campus, University of Cape Town, Rondebosch, 7700. 
+
+Google Maps directions to Masingene building: https://goo.gl/maps/MUFhXwnHiy5RGXXz7
+
+Office Hours: Monday to Friday: 08h30 to 16h30. We are not open on public holidays or weekends.
+Collection hours: Mondays and Tuesdays: 08h30 to 16h30; Wednesdays and Fridays: 08h30 to 15h30; Thursdays: 09h30 to 16h30.
+
+Phone Number: 021 650 3595. 
+
+ 
+
+Disclaimer - University of Cape Town This email is subject to UCT policies and email disclaimer published on our website at http://www.uct.ac.za/main/email-disclaimer or obtainable from +27 21 650 9111. If this email is not related to the business of UCT, it is sent by the sender in an individual capacity. Please report security incidents or abuse via https://csirt.uct.ac.za/report-incident
+
+https://lh3.googleusercontent.com/a/ACg8ocLxvt4Gn8duYS30VQC2mmLnYhUHg0nzp-se7hWiwTiP=s40-p-mo
+	
+
+
+Automatic reply: transcript record academic
+
+Inbox
+
+https://lh3.googleusercontent.com/a/default-user=s40-p
+
+Transcripts
+	
+
+9:52 AM (13 minutes ago)
+
+	
+
+
+	
+	
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+Welcome to the Qualification Verification Unit (QV Unit)
+
+Thank you for contacting us regarding your UJ Academic Documentation requirements.
+
+If you have not received a response from the QV Unit within 24 to 48 hours of your sent communication, please email melissah@uj.ac.za for immediate intervention. 
+
+Providing our clients with a professional, speedy service is important to us, hence for ease of reference kindly peruse the information below to assist you with placing your order using our Online Ordering (HIVE) Platform.
+
+Both graduated and non-registered students can use this platform to place orders for the documents listed below:
+
+·    Academic Transcript/Record (Document containing qualifications registered/obtained and modules registered reflecting overall outcomes/marks obtained)
+
+·    Transcript Supplement (Curriculum Supplement of all modules completed successfully per qualification) – *Academic Transcript/Record included.
+
+·    Confirmation/Special Letters
+
+N.B. The Qualification Verification Unit no longer couriers documents.
+
+Details of a provider are indicated below that you can contact or you can arrange with a courier of your choice to assist with the collection of your documents from our office. Any third party collecting on your behalf must produce written consent from yourself requesting the QV Unit to release your document.
+
+Courier Company Name: RAM
+
+Website: https://www.ram.co.za/
+
+Kindly use the below link to place your order: https://webapps.uj.ac.za/QualificationVerification/Default
+
+Important Notice
+
+Students that qualified in 2023 and are due to graduate in 2024
+
+For students who qualified during 2023 and are due to graduate in 2024, please contact your Faculty for an Academic Transcript/Record. All Faculty contact details are available on www.uj.ac.za  
+
+Degree Certificates
+
+Should you require a reprint of a qualification certificate, kindly liaise directly with certificates@uj.ac.za in this regard. Our office will not be able to assist you with this document.
+
+We thank you for your patience and understanding.
+
+Please Rate our Service using the below:
+
+https://forms.office.com/r/qSc6CJFcGi
+
+ 
+
+Kind Regards,
+
+Qualification Verification Unit
+
+Corporate Governance
+
+ 
+
+ 
+
+
+This email and all contents are subject to the following disclaimer:
+
+http://disclaimer.uj.ac.za
+
+...
+
+[Message clipped]  View entire message
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+...
+
+[Message clipped]  View entire message
+ One attachment  •  Scanned by Gmail
+tshingombe fiston
+	
+	AttachmentsFeb 27, 2024, 10:26 AM
+1 CGS08 Master’s and doctoral qualifications: Application for academic record or credit certificate Please tick the required box Academic record Statement of co
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Feb 27, 2024, 10:52 AM
+	
+to crc-nameclear, me, tshigombekb, maraba.a, lundt.s@dhet.gov.za, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp, confirmations, verification, dfqeas, saqainfo, verifications, president, info, info, Central, info, study, Microsoft, mandd, alumni
+Police Clearance Certificates: Online Enquiry
+
+Click here for information on how to apply for a Police Clearance Certificate.
+
+For any enquiries regarding the status of your application for a Police Clearance Certificate please complete the following:
+If you have acquired the enquiry number allocated to your Police Clearance Certificate application, provide it here:
+(Do not use the backslash in reference number: 2019123456)
+AND
+If you are a South African citizen provide your South African identity number OR if you are not an South African citizen provide your date of birth here:
+(DOB format: ccyymmdd e.g 19100130, no spaces in-between)
+OR
+If you don't find the record on your ID provide your surname as well as your date of birth here.
+Surname: 		Date of Birth: 	(ccyymmdd e.g 19100130)
+
+
+
+
+Search results:
+
+Take note: The data on this page were updated on 2024-02-27. The results shown include finalized as well as outstanding applications for the year prior to the updated date.
+
+PCC Enquiry nr	SA Identity number	Applicant's Surname	Birth date	Registration date	Finalized date	Dispatch method
+No records to retrieve for your selected ID (tirc0g0g000910610) ...No records to retrieve for your selected reference (1) ...No records to retrieve for your selected Surname (1) and DOB (1) ...
+
+If you could not trace your application or would like more information regarding your Police Clearance Certificate please contact our offices at:
+Tel: 	+27 (0) 12 393 3928
+Fax: 	+27 (0) 12 393 3909
+E-mail: 	crc-nameclear@saps.gov.za
+...
+
+[Message clipped]  View entire message
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsMar 11, 2024, 10:47 AM
+	
+to me, tshigombekb, maraba.a, lundt.s@dhet.gov.za, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp, confirmations, verification, dfqeas, saqainfo, verifications, president, info, info, Central, info, study, Microsoft, mandd, alumni, crc-nameclear
+
+ 
+
+ 
+
+ 
+
+Conversation opened. 1 read message. 
+
+
+Skip to content
+Using Gmail with screen readers
+
+50 of 4,150
+
+[ZendTo] 5Y Data Request
+
+Inbox
+
+https://lh3.googleusercontent.com/a/default-user=s40-p
+
+ZendTo <noreply.zendto@eskom.co.za>
+	
+
+Fri, Mar 8, 10:31 AM (3 days ago)
+
+	
+
+
+	
+	
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+	
+
+ 
+
+	
+	
+
+	
+
+ 
+	
+
+ 
+
+	
+
+This is an automated message sent to you by the ZendTo service.
+
+Eskom Automation <noreply.portal@eskom.co.za> has dropped off a file for you.
+
+IF YOU TRUST THE SENDER and are expecting to receive a file from them, you may choose to retrieve the drop-off by clicking the following link (or copying and pasting it into your web browser):
+
+https://zendto.eskom.co.za/pickup?claimID=rdkqXdn2Udun4uz3&claimPasscode=2WbpNXmkjh5izpQg&emailAddr=49846
+
+You have 21 days to retrieve the drop-off; after that the link above will expire.
+If you wish to contact the sender, just reply to this email.
+
+The sender has left you a note:
+
+Requested files
+
+Full information about the drop-off:
+
+Claim ID:
+	
+
+rdkqXdn2Udun4uz3
+
+Claim Passcode:
+	
+
+2WbpNXmkjh5izpQg
+
+Date of Drop-off:
+	
+
+2024-03-08 10:31:05
+
+ 
+
+— Sender —
+
+Name:
+	
+
+Eskom Automation
+
+Organization:
+	
+
+Eskom
+
+Email Address:
+	
+
+noreply.portal@eskom.co.za
+
+ 
+
+— File —
+
+Name: 
+	
+
+ESK8572.csv
+
+Description:
+	
+
+Eskom 5Y Data Request
+
+Size: 
+	
+
+12.7 MB
+
+ 
+	
+
+ 
+	
+
+ 
+
+	
+	
+
+Copyright © 2024 ZendTo | About ZendTo
+This service is powered by a copy of ZendTo
+
+	
+	
+	
+
+ 
+
+Disclaimer
+
+NB: This Email and its contents are subject to the Eskom Holdings SOC Ltd  EMAIL LEGAL NOTICE which can be viewed at https://www.eskom.co.za/about-eskom/email-legal-spam-disclaimer/
+
+ 
+
+https://lh3.googleusercontent.com/a/ACg8ocLxvt4Gn8duYS30VQC2mmLnYhUHg0nzp-se7hWiwTiP=s40-p-mo
+	
+
+
+Conversation opened. 1 unread message.
+
+
+Skip to content
+Using Gmail with screen readers
+
+1 of 4,152
+
+[ZendTo] You are trying to drop off some files
+
+Inbox
+
+https://lh3.googleusercontent.com/a/default-user=s40-p
+
+ZendTo <noreply.zendto@eskom.co.za>
+	
+
+9:54 AM (4 minutes ago)
+
+	
+
+
+	
+	
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+	
+
+ 
+
+	
+	
+
+	
+
+ 
+	
+
+ 
+
+	
+
+This is an automated message sent to you by the ZendTo service.
+
+Name:
+	
+
+tshingombe
+
+Organization:
+	
+
+engineering tshingombe/st peace college
+
+Email:
+	
+
+tshingombefiston@gmail.com
+
+
+You have asked us to send you this message so that you can drop-off some files for someone.
+
+IGNORE THIS MESSAGE IF YOU WERE NOT IMMEDIATELY EXPECTING IT!
+
+Otherwise, continue the process by clicking the following link (or copying and pasting it into your web browser):
+
+https://zendto.eskom.co.za/dropoff?auth=9a23345e836a4f1b1afc6dec30d1f050
+	
+
+ 
+
+	
+	
+
+Copyright © 2024 ZendTo | About ZendTo
+This service is powered by a copy of ZendTo
+
+	
+	
+	
+
+ 
+
+Disclaimer
+
+NB: This Email and its contents are subject to the Eskom Holdings SOC Ltd  EMAIL LEGAL NOTICE which can be viewed at https://www.eskom.co.za/about-eskom/email-legal-spam-disclaimer/
+
+ 
+
+https://lh3.googleusercontent.com/a/ACg8ocLxvt4Gn8duYS30VQC2mmLnYhUHg0nzp-se7hWiwTiP=s40-p-mo
+	
+
+
+ 
+
+    Home
+     
+    Personal Info
+     
+    CPD
+     
+    VA
+     
+    Finance
+     
+    CPD Activities
+     
+    Request Invitation
+     
+    New Application
+     
+    Registration Status
+     
+    fiston tshingombe 
+
+https://engineeringcouncilsa.microsoftcrmportals.com/logoECSA.png
+
+    Home
+    CPD Pre-Validated Activities
+
+CPD Pre-Validated Activities
+
+Validation Number. sort descending
+	
+
+Provider. sort descending
+	
+
+Course Category. sort descending
+	
+
+Name . sort ascending
+	
+
+Category. sort descending
+	
+
+Notional Hours. sort descending
+	
+
+Credits Earned. sort descending
+	
+
+Nature of Activity. sort descending
+	
+
+Discipline. sort descending
+	
+
+Sub Discipline. sort descending
+	
+
+Valid From. sort descending
+	
+
+Valid To. sort descending
+
+	
+	
+	
+	
+
+All Categories
+	
+	
+	
+	
+	
+	
+	
+
+	
+	
+	
+	
+	
+	
+	
+	
+	
+	
+	
+
+SEMC-BLD-02
+	
+
+IESSA
+	
+
+Refresher courses
+	
+
+2-Day Course on Design of High-Rise Buildings: Johannesburg, Cape Town and Durban
+	
+	
+
+20.00
+	
+
+2.00
+	
+	
+	
+	
+
+1/1/2015
+	
+
+12/31/2019
+
+SEMC-ERC-02
+	
+
+IESSA
+	
+
+Refresher courses
+	
+
+2-Day Course on Eurocode Design of Concrete Structures: Johannesburg, Cape Town and Durban
+	
+	
+
+20.00
+	
+
+2.00
+	
+	
+	
+	
+
+1/1/2015
+	
+
+12/31/2019
+
+IESSACIEmeetings004/11
+	
+
+Illumination Engineering Society of South Africa
+	
+
+Refresher courses
+	
+
+CIE Meetings April
+	
+	
+
+2.00
+	
+
+0.20
+	
+	
+	
+	
+
+6/1/2011
+	
+
+5/31/2013
+
+IESSACIEmeetings002/11
+	
+
+Illumination Engineering Society of South Africa
+	
+
+Refresher courses
+	
+
+CIE Meetings February
+	
+	
+
+2.00
+	
+
+0.20
+	
+	
+	
+	
+
+6/1/2011
+	
+
+5/31/2013
+
+IESSACIEmeetings001/11
+	
+
+Illumination Engineering Society of South Africa
+	
+
+Refresher courses
+	
+
+CIE. Meetings January
+	
+	
+
+2.00
+	
+
+0.20
+	
+	
+	
+	
+
+6/1/2011
+	
+
+5/31/2013
+
+IESSACIEmeetings003/11
+	
+
+Illumination Engineering Society of South Africa
+	
+
+Refresher courses
+	
+
+CIE Meetings March
+	
+	
+
+2.00
+	
+
+0.20
+	
+	
+	
+	
+
+6/1/2011
+	
+
+5/31/2013
+
+CEM-10.5/2014
+	
+
+IESSA
+	
+
+Refresher courses
+	
+
+Combination of Environmental Management Awareness for Local Government CEM 09.1.3 and Introduction to Integrated Waste Management CEM 09.6.2
+	
+	
+
+20.00
+	
+
+2.00
+	
+	
+	
+	
+
+1/1/2014
+	
+
+12/31/2014
+
+CEM-10.6/2014
+	
+
+IESSA
+	
+
+Refresher courses
+	
+
+Combination of Introduction to Remediation CEM 06.5.2 and CEM 10.1
+	
+	
+
+40.00
+	
+
+4.00
+	
+	
+	
+	
+
+1/1/2014
+	
+
+12/31/2014
+
+    < 
+    1
+    2
+    3
+    4
+    5
+    6
+    7
+    8
+    ..
+    500
+    >
+
+
+
+Waterview Corner Building, 2 Ernest Oppenheimer Avenue, Bruma Lake Office Park, Bruma, 2198, Johannesburg
+
+https://engineeringcouncilsa.microsoftcrmportals.com/free-email-icon-hi.png    engineer@ecsa.co.za
+
+https://engineeringcouncilsa.microsoftcrmportals.com/phone-17-512.png    +27116079500
+
+TwitterFacebookLinkedIN
+
+Copyright © 2024. All rights reserved.
+
+    Home
+     
+    Personal Info
+     
+    CPD
+     
+    VA
+     
+    Finance
+     
+    CPD Activities
+     
+    Request Invitation
+     
+    New Application
+     
+    Registration Status
+     
+    fiston tshingombe 
+
+https://engineeringcouncilsa.microsoftcrmportals.com/logoECSA.png
+
+    Home
+    Profile
+
+Profile
+
+fiston tshingombe graphic/image
+
+fiston tshingombe
+
+Profile
+
+Security
+
+Change Password Change Email Manage External Authentication
+
+TERMS & CONDITIONS
+
+Consent for Use of Personal Information
+
+...
+
+[Message clipped]  View entire message
+ One attachment  •  Scanned by Gmail
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsMar 11, 2024, 12:48 PM
+	
+to me, tshigombekb, maraba.a, lundt.s@dhet.gov.za, tena.m, lutuka.m, president, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp, confirmations, verification, dfqeas, saqainfo, verifications, president, info, info, Central, info, study, Microsoft, mandd, alumni, crc-nameclear
+...
+
+[Message clipped]  View entire message
+ 8 Attachments  •  Scanned by Gmail
+Gmail virus scanners are temporarily unavailable
+
+– The attached files haven't been scanned for viruses. Download these files at your own risk.
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Mar 12, 2024, 2:41 PM
+	
+to sonnika.lubd.s, me, tshigombekb, maraba.a, lundt.s, tena.m, lutuka.m, President, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp
+
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Mar 12, 2024, 2:45 PM
+	
+to sonnika.luns.s, me, tshigombekb, maraba.a, lundt.s, tena.m, lutuka.m, President, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp
+
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Mar 12, 2024, 2:50 PM
+	
+to confirmations, verification, dfqeas, saqainfo, verifications, sonnika.lund.s, me, tshigombekb, maraba.a, lundt.s, tena.m, lutuka.m, President, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp
+...
+
+[Message clipped]  View entire message
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Mar 12, 2024, 2:52 PM
+	
+to sonnika.s, me, tshigombekb, maraba.a, lundt.s, tena.m, lutuka.m, President, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp, confirmations, verification, dfqeas, saqainfo
+...
+
+[Message clipped]  View entire message
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsMar 14, 2024, 12:50 PM
+	
+to me, tshigombekb, maraba.a, lundt.s, tena.m, lutuka.m, President, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp, confirmations, verification, dfqeas, saqainfo, sonnika.s
+
+	
+Support
+
+Thank you. Your question was successfully submitted to Microsoft Support.
+ 
+Please keep in mind: microsoftsupport.com and microsoft.com are both valid email domains used for communications related to your support request.
+ 
+Incident title: 	engineering data portal
+Support request number: 	2403110060003192
+Severity rating: 	C
+Expect response within: 	
+8
+Contact preference: 	
+Email
+Name: 	Tshingombe Tshitadi
+Email address: 	
+tshingombefiston@gmail.com
+Contact numbers: 	
+0725298946
+
+Thank you,
+Microsoft Support
+ 
+
+Additional Information
+
+Product: Developer, Student and Startup Programs/Azure for Education/Licensing Information
+ 
+
+This message from Microsoft is an important part of a program, service, or product that you or your company purchased or participates in. Microsoft respects your privacy. Please read our Privacy Statement.
+ 
+
+One Microsoft Way, Redmond, WA 98052 USA
+  	
+ 
+Microsoft
+...
+
+[Message clipped]  View entire message
+ 3 Attachments  •  Scanned by Gmail
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsApr 6, 2024, 11:02 AM (5 days ago)
+	
+to me, tshigombekb, maraba.a, lundt.s, tena.m, lutuka.m, President, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp, confirmations, verification, dfqeas, saqainfo, sonnika.s
+
+RE: Appeal statement result .award degre diploma certificate n engineering studie
+
+Inbox
+
+Lundt, Sonnika
+	
+
+Thu, Mar 14, 7:19 PM
+
+	
+
+
+	
+	
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+Kindly note that Ms Maraba and I are no longer with the office of the Minister.
+
+Kindly contact our call center: CallCentre@dhet.gov.za / 0800 872 222 or visit our website: www.dhet.gov.za
+
+Best wishes
+
+ 
+
+Mrs Sonnika Lundt
+
+University Capacity Development
+
+Department of Higher Education and Training
+
+123 Francis Baard Street, Pretoria Central
+
+Room 506_012 312 5440
+
+lundt.s@dhet.gov.za
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+Incident INC000025277051 reported by you has been resolved. Request assistance from Dept of Higher Education and Training
+
+Inbox
+
+https://ssl.gstatic.com/ui/v1/icons/mail/profile_mask2.png
+
+itsmprd@sita.co.za <itsmprd@sita.co.za>
+	
+
+Tue, Mar 19, 12:52 PM
+
+	
+
+
+	
+	
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+Dear Tshingombe Fiston,
+
+We are pleased to inform you that your reported Incident has been resolved.
+
+Reference No.: INC000025277051
+Summary: Request assistance from Dept of Higher Education and Training
+
+Your reported Incident has been resolved with the following resolution:
+The N3 statement of results for 2100002023812 for the 2023/11 exam was released and sent to SHALOM TECHNICAL COLLEGE on 01/02/2024 waybill number 080057034873 (SkyNet couriers). Candidate does not qualify for a certificate as he did not pass all subjects. For a diploma to be awarded (as per the complaint), a candidate must achieve N4, N5 and N6 certificates and also have the relevant experiential work, then submit the application at the college. This candidate does not qualify for that. Complainant was responded to via an email.
+
+Please do not hesitate to contact the Service Desk should there be any further questions or inquiries regarding your Incident.  Please quote your assigned Reference Number.
+
+Yours sincerely,
+
+Service Desk
+
+https://lh3.googleusercontent.com/a/ACg8ocKXAkWuMsvk1UB4tteph7ml8jYF0m9hC26Hrh4GoZCA5eWrXg=s40-p-mo
+	
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+INC000025277051 PHL enquiry
+
+Inbox
+
+https://ssl.gstatic.com/ui/v1/icons/mail/profile_mask2.png
+
+Nhleko, Gugu <Nhleko.G@dbe.gov.za>
+	
+
+Tue, Mar 19, 12:39 PM
+
+	
+
+
+	
+	
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+Good day
+
+ 
+
+The DHET has received the below enquiry
+
+ 
+
+Kindly note that according to the records for this profile 2100002023812, the results for 2023/11 were released and sent to  SHALOM TECHNICAL COLLEGE on 01/02/2024 waybill number 080057034873 (SkyNet couriers). Candidate does not qualify for an N3 certificate as he did not pass all subjects.
+
+ 
+
+For a candidate to be awarded with a diploma ( as per the below complaint), they must achieve N4, N5 and N6 certificates plus relevant work experience then then may submit the application at the college.
+
+ 
+
+Regards
+
+Gugu Nhleko
+
+Helpdesk
+
+ 
+
+ 
+
+……………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………………
+
+ 
+
+ 
+
+Complains about : Service delivery
+
+ 
+
+Person / Ministry / Municipality: Department of Higher Education 
+
+Preferred contact number               : 0725298946
+
+Any other contact number               : 0725298946
+
+E-mail                                                        : tshingombefiston@gmail.com
+
+Fax Number                                           :
+
+ID number                                               : tircog0000910610
+
+Ref number                                            : ID: 2100002023812
+
+Office where you complained                     :dhet exam  assessment center   irregularity  and career  dhet  kheta    
+
+Street                                                                   : : 19 Harries St, Marshalltown, Johannesburg, 2107
+
+Building name                                                   : markadet   house
+
+City                                                                        : Johannesburg
+
+Office Contact Number                 : St. Peace College & Afric Policing Institut
+
+Province                                                              : Gauteng
+
+Date of complaint                                            : 12 february 2022
+
+Names of people not delivering service:  st peace college afric institut police  , dhet marker    chief  irrergularitor mr
+
+Mngaka ,   rectorat shalom technical 
+
+Where did it happen town / site / municipality: in shalom technical college ansd afric training college 
+
+Type of service                                    :  service   retaining statement  id  africa technical college   and irregulariy trascript material    febrauarie 2022 was suspende  n4 examination  time table  , and marker in progress  for n5,n6 afte 18 month appear    before the result for n3 2023 november  was exam  july 2021 shalom technical result retain and dint collected for proof of  irregularity was time table in november 2021 februarie  , the marker asking additional information for assessment  and statement to submitted  but shalom and afric didn’t have those statement  in registrar collecting   the irregulariy  was attended  n5,n6  final examination  submission previouse pappers examination mark guideline  and  comleted n5,n6  test memo for irregularity investigation casebook  in irregularity statemnt outcom  and  certificate   diploma for irregularity   outcom final  beford the result for 2023 november   that   the complain was also to show   the id enrolment from citizen saqa   award degre diploma  school leaver dr congo   time table ref /  to completed same subject electrotechnologie , and industriel  orientation meeting requiremnt saqa n3 to qualifie for diploma n studie engineeering in saqa  n diploma work pratical experimental   career   from assessment theoretical topics research submitted   for irregularity in saqa ,pratical assessment in saqa 21 days   2019  t0 2023    
+
+ SAQA REGISTRAR STUDENT NUMBER: 210020223812, 2004007064382. CO70040101099, esult outcome  primary status registration saga asset 09121 .saqa institute 30_ 39 no assess policy.IE099 ,saqa  id 67q0 certificate advance phase teach .n1 saqa id 63375.id 67491 entrance
+
+ .n diplomat 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+Citizen is requesting about the release of results statement and to award a diploma.
+
+ 
+
+Student ID: 2100002023812
+
+Student name.tshingombe Tshitadi
+
+College instituts name St peace college
+
+Exam :external  shalom technical :
+
+899993812
+
+Afric policing instituts
+
+Memorandum  :2023/0508
+
+ 
+
+See attachment for more information
+
+Citizen requests the Presidency to assist them
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+RE: appeal application qualification occupation n diplomat award dr congo leaver 2016 submission and transcript certificate record supplementary .;.rsa completed n diplomat studie engineering n4.,n3;n5 n6.. ; quality insurence body irregularities in pr...
+
+Inbox
+
+https://lh3.googleusercontent.com/cm/AGPWSu-ZtX9mJsnl_0HoxxObVlek2fD8yr0NWvEK9E84dlwnDnOv2y03Z2tgfqEMOxt7yzpTFw=s40-p
+
+David Thaga
+	
+
+Tue, Mar 26, 10:42 PM (10 days ago)
+
+	
+
+
+	
+	
+	
+
+to me, Lavani
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+Good Evening Sir
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+Case 2403110060003192 TrackingID#2403110060003192
+
+Inbox
+
+https://lh3.googleusercontent.com/cm/AGPWSu-W7pH1qDpWPjb5Z74TIPA78Fjo1rTBrQX3kI1GtSjjK5h0h1bQEL6FbXKYldvnXkrxUA=s40-p
+
+Microsoft Support
+	
+
+Thu, Mar 28, 1:52 PM (8 days ago)
+
+	
+
+
+	
+	
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+
+ 
+
+ 
+	
+
+	
+
+Support
+
+ 
+
+ 
+
+Hello,
+
+ 
+
+Thank you for using Microsoft products and services, we appreciate your business. This email is to confirm that your support case has been closed, the details of the service request case are as follows:
+
+ 
+	
+
+    Service Request #: 2403110060003192
+    Service Request Title: VSS, engineering data portal
+    Closed Date: 3/28/2024 11:52:35 AM UTC
+
+Did we resolve your issue?
+
+ 
+	
+
+Yes, during my first contact
+Yes, after multiple contacts
+No
+
+ 
+
+Thank you in advance for your valuable feedback and time.
+-Microsoft Customer Service and Support
+
+ 
+
+ 
+
+Based on your response, we may contact you about your experience to help resolve any outstanding issues and ask for additional feedback. This message from Microsoft is an important part of a program, service, or product that you or your company purchased or participate in. Microsoft respects your privacy. Review our online Privacy Statement.
+
+One Microsoft Way, Redmond, WA 98052 USA
+	
+	
+
+ 
+
+refid-4341063
+
+VSS, engineering data portal - TrackingID#2403110060003192
+
+Inbox
+
+https://lh3.googleusercontent.com/cm/AGPWSu-W7pH1qDpWPjb5Z74TIPA78Fjo1rTBrQX3kI1GtSjjK5h0h1bQEL6FbXKYldvnXkrxUA=s40-p
+
+Marek P
+	
+
+Thu, Mar 28, 1:51 PM (8 days ago)
+
+	
+
+
+	
+	
+	
+
+to me
+
+https://mail.google.com/mail/u/0/images/cleardot.gif
+	
+
+ 
+
+Microsoft
+	
+
+                                                  Support
+
+	
+	
+
+ 
+
+Dear Tshingombe,
+
+ 
+
+ 
+
+I am contacting you concerning the support case 2403110060003192.
+
+ 
+
+I would like to inform you that it has been 2 business days since I asked for your confirmation if your issue was resolved.
+
+ 
+
+As I have not received the confirmation, I will close the ticket for the time being, however, you may always contact us again.
+
+ 
+
+In case you need any future assistance, please go to https://my.visualstudio.com, use the Get Help tab and click on “Create a new support case” choosing the most suitable Category, Subject and Issue. You will find additional self-help resources, troubleshooting steps and possibility to submit a support request.
+
+ 
+
+You can also directly follow this link: https://my.visualstudio.com/GetHelp/AssistedSupport
+
+ 
+
+Due to the fact that the above-mentioned ticket will be closed, after this interaction, you will receive a separate closure email with an opportunity to tell us about your support experience.
+
+ 
+
+Your feedback is important to us.
+
+ 
+
+Thank you for taking the time to share your valued opinion.
+
+ 
+
+ 
+
+Kind Regards, 
+Mark
+
+Visual Studio Subscriptions Team
+Europe, Middle East and Africa
+For our contact details please visit: https://www.visualstudio.com/subscriptions/support/
+Web: https://www.visualstudio.com/
+Subscriber Downloads: https://my.visualstudio.com
+To protect your PC against viruses, click here: https://www.microsoft.com/security
+About Microsoft Ireland: www.microsoft.com/ireland
+Microsoft Ireland Operations Limited. A company incorporated and registered in Ireland number 256796.
+Registered office 70 Sir John Rogerson’s Quay, Dublin 2, Ireland
+
+
+------------------- Original Message -------------------
+
+Microsoft
+	
+
+                                                  Support
+
+ 
+
+Dear Tshingombe,
+
+ 
+
+ 
+
+I am contacting you concerning the support case 2403110060003192.
+
+
+I have tried contacting you at +27 725298946, however, I have been unable to reach you.
+
+ 
+
+As per my previous email, please provide me with a detailed description of your query.
+
+
+I will leave this case open for another business day and try calling you again tomorrow.
+
+
+Please let me know if you have any preferred contact number or callback time.
+
+
+Should you have any questions or require assistance, please do not hesitate to contact us.
+
+
+Looking forward to hearing from you.
+
+ 
+
+ 
+
+Kind Regards, 
+Mark
+
+Visual Studio Subscriptions Team
+Europe, Middle East and Africa
+For our contact details please visit: https://www.visualstudio.com/subscriptions/support/
+Web: https://www.visualstudio.com/
+Subscriber Downloads: https://my.visualstudio.com
+To protect your PC against viruses, click here: https://www.microsoft.com/security
+About Microsoft Ireland: www.microsoft.com/ireland
+Microsoft Ireland Operations Limited. A company incorporated and registered in Ireland number 256796.
+Registered office 70 Sir John Rogerson’s Quay, Dublin 2, Ireland
+
+ 
+
+ 
+
+------------------- Original Message -------------------
+
+ 
+
+Microsoft
+	
+
+                                                  Support
+
+ 
+
+Dear Tshingombe,
+
+ 
+
+ 
+
+I am contacting you concerning the support case 2403110060003192.
+
+
+I have tried contacting you at +27 725298946, however, I have been unable to reach you.
+
+
+As mentioned earlier, to proceed with resolving your issue, please provide me with a detailed description of your query.
+
+
+I will try contacting you again tomorrow to collect the details mentioned above.
+
+ 
+
+VSS, engineering data portal - TrackingID#2403110060003192
+
+Inbox
+
+Marek P
+	
+
+Thu, Mar 28, 1:51 PM (8 days ago)
+
+	
+
+
+	
+	
+	
+
+...
+
+[Message clipped]  View entire message
+ 2 Attachments  •  Scanned by Gmail
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsApr 6, 2024, 11:11 AM (5 days ago)
+	
+to confirmations, verification, dfqeas, saqainfo, sonnika.s, me, tshigombekb, maraba.a, lundt.s, tena.m, lutuka.m, President, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp
+36
+Targets not achieved:
+ Number (1 227) of unemployed graduates completed internships programmes (achieved
+591). The under achievement was ascribed to inadequate monitoring of the entry
+requirements for internship programmes.
+ Number (1 000) of unemployed learners enrolled in entrepreneurship and digital skills
+programmes (achieved 150). The underachievement was attributed to delays in the
+procurement of the service provider to conduct the training.
+ Number (1 944) of bursaries awarded to students (renewals) (achieved 220). It has been
+reported that at the time of reporting, fewer applications for renewals were received than
+expected.
+Programme 4: Quality Assurance
+The purpose of the programme is to ensure quality provisioning of occupationally directed
+programmes for Occupations in High Demand. For the 2022/23 financial year, the programme had 5
+targets and achieved 100 per cent.
+Selected key achievements:
+ Number (4) of occupational qualifications promoting Occupations in High Demand are
+developed (achieved 4).
+ Number (140) of candidates completed the Recognition of Prior Learning (RPL) programme
+(achieved 185). It was noted that more learners complied with the RPL assessment
+requirements and were declared competent.
+ Number (420) of learning programmes evaluated (achieved 738). It has been reported that
+the overachievement was due to more learning programmes received and processed.
+4.6.3.Overview and assessment of the ETDP SETA’s 2022/23 budget allocation and
+expenditure
+For the 2022/23 financial year, the ETDP SETA’s total revenue amounted to R1,1 billion (R1,0 billion:
+2021/22). The ETDP SETA’s revenue comprised R1,0 billion from non-exchange transactions and
+R98,88 million from exchange transactions (R9,4 million: Penalties and interest; R89,1 million:
+Interest income; R226 000: Other income and R43 000 gain on disposal of assets). The SETA’s
+revenue increased by 8.9 percent from R1,0 billion in 2021/22.
+At the end of the financial year, the ETDP SETA had spent R920,3 million (R 794,3 million: 2021/22),
+recording a lower than projected spending amounting to R234,0 million or 20.2 per cent against the
+available budget of R1,1 billion.
+A total of R709,6 million was spent on discretionary and mandatory grants, constituting 77.1 per cent
+of the total expenditure. Expenditure on employee costs amounted to R117,7 million, which is the
+second largest expenditure item at 13 per cent, followed by expenditure on general expenses
+amounting to R57,9 million.
+The key cost drivers in terms of administration expenses include, among others, operating rentals-
+buildings: R17,1 million (R17,8 million: 2021/22), travel and subsistence: R5,9 million (R2,5 million in
+2021/22), hire of equipment: R5,8 million (R6,1 million: 2021/22), advertising, marketing and
+communication: R5,2 million (R2,5 million: 2021/22), Auditors remuneration: R4,7 million (R3,8 million:
+2021/22), meeting and board fees: R3,2 million (R3,4 million: 2021/22), and water and electricity:
+R3,4 million (R2,6 million: 2021/22).
+4.6.4.Irregular, fruitless, and wasteful expenditure
+Irregular expenditure: The ETDP SETA reported irregular expenditure amounting to R3,721 million,
+comprising R2,734 million opening balances from the prior year and R987 000 incurred during the
+2022/23 financial year. Regarding irregular expenditure incurred during the 2022/23 financial year, it
+was noted that R482 000 was incurred due to delays in the finalisation of the vetting process by
+DHET for the three Accounting Authority members appointed to serve on the ETDP SETA board.
+After engagements with the DHET and the National Treasury, the appointment has been regularised,
+and the outstanding documents were submitted concerning the vetting process. It was further noted
+that there was no financial loss to the organisation as services were rendered. Regarding payments
+made on expired contracts (R505 000), this was ascribed to a due payment made to a legal service
+provider. However, at the time of payment processing, the contract had expired, resulting in an37
+irregular expenditure. Consequence management was implemented, and there was no financial loss
+to the organisation as services were rendered.
+Fruitless and wasteful expenditure: For the year under review, the ETDP SETA incurred fruitless
+and wasteful expenditures amounting to R283, 000,00. As follows: R243 312,46: Interest and
+penalties: SARS; R1 530,00 Accommodation: no show; R3 044,01: Flight changes (the funds were
+recovered); R35 000,00: Services rendered were above the PO.
+On steps taken regarding fruitless and wasteful expenditure relating to interest and penalties: SARS,
+flight changes and services rendered above the purchase order, the SETA reported that issues were
+still under investigation to determine the officials at fault and will be finalised by 30 November 2023.
+4.6.5.2022/23 Audit outcomes
+The ETDP SETA obtained a qualified audit opinion for the period under review. This is a significant
+regression from a clean audit obtained in 2021/22.
+The AG indicated that except for the effects of the matters described in the basis for qualified opinion,
+the financial statements present fairly, in all material respects, the financial position of the ETDP
+SETA as at 31 March 2023, and financial performance and cash flows for the year then ended in
+accordance with the Standards of Generally Recognised Accounting Practice (GRAP), the
+requirements of the Public Finance Management Act 1 of 1999 (PFMA), and the Skills Development
+Act 97 of 1998 (SDA).
+Basis for qualified opinion
+Project accruals: The AG reported that the project accruals (discretionary) were not recognised in
+accordance with GRAP 1, Presentation of financial statements. Adequate records of project
+expenditure not yet paid at year-end were not maintained. The AG was unable to determine the full
+extent of the misstatement on project accruals, as well as the related discretionary grants and
+commitments, as it was impractical to do so. Consequently, the AG was unable to determine whether
+any adjustments relating to project accruals (discretionary) of R194 948 000 disclosed in note 14,
+discretionary grants and project expenditure of R569 941 000 disclosed in note 6, and commitments
+of R1 198 450 000 disclosed in note 19 to the financial statements were necessary.
+Additionally, there was an impact on the surplus for the period and on the accumulated surplus in the
+financial statements.
+Emphasis of matter
+ Restatement of corresponding figures: The AG noted that as disclosed in note 26 to the
+financial statements, the corresponding figures for 31 March 2022 were restated as a result of an
+error in the financial statements of the public entity at and for the year ended, 31 March 2023.
+Other matters:
+ Retention of surplus: The AG reported that there are current deliberations with the National
+Treasury regarding the appropriate approval process for the retained surplus of R1 092 627 000
+as disclosed in note 21.1 of the financial statements, the outcomes of which might affect how the
+entity sources the approval for these funds and whether utilisation of the funds in the current form
+will not constitute irregular expenditure.
+Report on the audit of the annual performance report
+ Material misstatements: The AG identified material misstatements in the annual performance
+report submitted for auditing. These material misstatements were in the reported performance
+information of Programme 3: Learning programmes and projects, and Programme 4: Quality
+assurance. Management subsequently corrected all the misstatements and did not include any
+material findings in this report.
+Annual financial statements, performance and annual report
+ The AG reported that the financial statements submitted for auditing were not prepared in
+accordance with the prescribed financial reporting framework and supported by full and proper
+records, as required by section 55(1) (a) and (b) of the PFMA.
+Material misstatements of repairs and maintenance expenditure, commitments, project accrual
+and creditors, related parties, and discretionary grants identified by the auditors in the submitted
+financial statements were corrected and the supporting records were provided subsequently.38
+However, uncorrected material misstatements and supporting records that could not be provided
+resulted in the financial statements receiving a qualified opinion.
+Consequence management
+ The AG was unable to obtain sufficient appropriate audit evidence that disciplinary steps were
+taken against officials who had incurred irregular expenditure as required by section 51(1) (e)(iii)
+of the PFMA. This was because investigations into irregular expenditure were not performed.
+The AG was unable to obtain sufficient appropriate audit evidence that disciplinary steps were
+taken against officials who had incurred fruitless and wasteful expenditure as required by section
+51(1)(e)(iii) of the PFMA. This was because investigations into fruitless and wasteful expenditure
+were not performed.
+5. OBSERVATIONS AND KEY FINDINGS
+The Committee, having assessed the 2022/23 Annual Reports of the Departments and entities, made
+the following observations and key findings.
+5.1. Department of Higher Education and Training
+5.1.1.Programme 1: Administration
+ The committee welcomed the clean audit of the financial statements of the Department.
+However, the material findings on the performance report are still a cause of concern. Of great
+concern is that all four delivery programmes that the AG scoped during the year under review
+had material findings. The Department is commended for not incurring irregular expenditure in
+2022/23, which is evident that internal control measures put in place are successful.
+ The committee was concerned that the Department incurred fruitless and wasteful
+expenditure amounting to R88 845 for the payment of cleaning services not verified as being
+rendered and fraudulent salary payments made.
+ The organogram of the Department was inadequate to enable it to operate optimally.
+Furthermore, inadequate human resource capacity contributed to the underperformance
+recorded during the year under review.
+ The Department’s proposed relocation of its office to the Council for Scientific and Industrial
+Research (CSIR) Building was noted by the committee. However, it was concerned about the
+state and capacity of the CSIR Building to accommodate the Department’s personnel.
+5.1.2.Programme 3: Planning, Policy and Strategy
+ The overall performance (53 percent) of the Department during the year under review, which
+was a regression from 73 percent achieved in 2021/22 was a cause for concern.
+ The proposed presentation of the comprehensive student funding model for the PSET system
+to the Cabinet at the end of October 2023 was noted. The committee welcomed the
+undertaking from the Department that the model will cover the entire sector, including CET.
+ The inadequate oversight by the Department over its entities was noted as a concern given
+the poor implementation of the audit action plans by some entities and the lack of
+consequence management.
+ The repeated failure by NSFAS in tabling its Annual Report for two consecutive financial
+years, 2021/22 and 2022/23 was noted as a serious concern by the committee. The
+committee noted that the annual reports are an essential aspect of accountability and provide
+insight into the operations and governance of the entity. The failure of NSFAS to comply with
+this legal requirement impacts the committee’s ability to exercise oversight over the entity and
+undermines good governance.
+ The signing of the proclamation to give effect to the NQF Amendment Act, 2019 (Act No. 12
+of 2019) by the President was welcomed.
+ The finalisation and publication of the National Plan for Post-School Education and Training
+(NP-PSET) was noted.
+5.1.3.Programme 3: University Education
+ The 2022/23 outstanding audits of the University of South Africa (UNISA), University of
+Limpopo, University of Fort Hare, and Vaal University of Technology were noted with concern.
+ The non-compliance findings by the AG relating to the fact that members of staff of
+universities did not declare their conflicts of interests upfront, did not declare their possible
+conflict of interest when the universities were procuring from the related suppliers, or some39
+universities do not have adequate processes in place for the staff to declare their conflicts, as
+required by the legislation was noted with serious concern.
+ The support provided by the Department in expanding the number of young black lecturers in
+higher education through the new Generation of Academics Programme (NGAP) was noted.
+5.1.4.Programme 4: Technical and Vocational Education and Training
+ The placement of 10 616 TVET graduates within the industry and across government
+departments was welcomed by the committee. The committee noted that the private sector
+could do more in terms of absorbing more TVET students, especially those who require
+workplace learning to obtain their qualifications.
+ The outstanding audits of the Taletso, Central Johannesburg, and Coastal TVET colleges
+were noted with concern.
+5.1.5.Programme 5: Skills Development
+ The increased regression in the audit outcomes of SETAs, particularly regression from
+unqualified audit opinion in 2021/22 to qualified audit opinion in 2022/23, was noted as a
+serious concern. Of great concern were the entities (NSF, Services SETA and Construction
+SETA) that remained qualified with findings, some of which were in the qualified category for
+consecutive audit cycles. This signified inadequate implementation of the audit action plans.
+The committee was also concerned about the regression by five SETAs (Bank SETA,
+MERSETA, TETA, ETDP SETA and HWSETA) from unqualified audits in 2021/22 to qualified
+audits in 2022/223
+ The committee noted its concern regarding the inability of the SETAs to implement adequate
+project management and monitoring. Consequently, this contributes to irregular, fruitless, and
+wasteful expenditures, including double dipping of learners from different funders and funding
+of the same learners by multiple SETAs.
+ The delays by the Department in developing an integrated system to assist SETAs with the
+management of their skills development programmes remains a concern. At present, the
+systems of SETAs are not aligned; hence, it is easier for beneficiaries to be funded by more
+than one SETA, and even the deceased or people above the age of 65. The committee had
+previously recommended the development of this system so that SETAs could share data and
+detect irregularities in the funding of beneficiaries.
+ The committee noted the accumulation of reserves by SETAs, which amounted to R12 billion
+during the year under review.
+5.1.6.Programme 6: Community Education and Training
+ The low enrolments in the CET sector were noted as a concern given the importance of the
+sector in the PSET system, especially given that there are still 3 million people in the country
+who are illiterate.
+ The collaboration between the Department and the Department of Public Works and
+Infrastructure (DPWI) on repurposing underutilised land and infrastructure for the expansion
+of the CET college sector was welcomed.
+ The committee was concerned that some examination centres in the CET sector were not
+compliant with the prescribed guidelines.
+5.2. Council on Higher Education
+ The clean audit obtained in 2022/23 is highly commendable given that it is an improvement
+from an unqualified audit with findings obtained in 2021/22, and it is commensurate with the
+performance of 98 per cent recorded in the year under review.
+ It is commendable that the entity has not incurred irregular expenditures during the year
+under review and that it implemented consequences management against staff who were
+responsible for incurring fruitless and wasteful expenditure by missing flights. The entity took
+steps to recover in full the funds from the concerned officials.
+ The delays in filling vacant positions were noted with concern.
+ It is noted with great concern that the budget allocation to the CHE is not sufficient to enable it
+to undertake all the work for which it is responsible, and to enable a sufficient number of staff40
+to be in place to do the work. Furthermore, additional mandates have been added to the CHE
+over the years, including responsibility for managing the HEQSF as a quality council, and the
+new Transformation oversight mandate.
+ The stipulated compensation of employees (CoE) to Goods and Services budget ratio is a
+factor that further limits the ability of the organisation to employ staff in permanent positions;
+this leads to too much reliance on the use of service level contracts, of contracted staff, and
+on the use of peer academics for core work and in critical support areas such as IT where
+significant investment is needed.
+5.3. South African Qualifications Authority
+ The improvement from an unqualified audit opinion with findings in 2021/22 to a clean audit in
+2022/23 was welcomed. Furthermore, SAQA did not incur irregular, fruitless and wasteful
+expenditure during the year under review.
+ It is commendable that SAQA achieved 88 per cent of the 2022/23 APP targets, recording an
+increase of 8 per cent from 80 percent in 2021/22.
+ The progress made by the entity in developing its automation project (Project Phoenix) and
+the planned phased-in approach implementation was welcomed. The project will enable
+SAQA to speedily process the verification of foreign qualifications. This project will also
+enable SAQA to generate additional revenue due to its improved turn-around time.
+ Stable governance and management systems at the entity were noted, including the women’s
+leadership. The committee also welcomed the fact that the senior management positions
+were permanently filled.
+ The delays in the filling of several vacancies, which partly contributed to the underspending
+amounting to R43 million during the year under review, were concerning.
+ Notwithstanding the good performance recorded by the entity during the year under review
+(88 percent), it still operated under financial constraints, which affected its ability to operate
+optimally.
+ The reported funding requirement over the MTEF period (2024/25 – 2026/27) to fund
+automation and digitisation, verification of South African qualifications and the NQF Chair
+(Research), including the automation Project Phoenix, were noted.
+ Delays in the evaluation of foreign qualifications within three months remain a challenge for
+the entity.
+5.4. Quality Council for Trades and Occupations
+ The seventh consecutive clean audit obtained by the QCTO in 2022/23, including an
+improved performance from 77.4 per cent in 2021/22 to 96 per cent in the year under review,
+was welcomed. It is further commendable that the entity did not incur irregular, fruitless, and
+wasteful expenditures during the year under review.
+ The approval by the Minister of the QCTO application to purchase its premises was
+welcomed, as it will, among other things, reduce rental fees and improve its future financial
+position.
+ The steady increase in the uptake of occupational qualifications, especially by the public
+sector, including the accreditation of TVET and CET colleges to offer occupational
+qualifications and skills programmes was commended.
+ The underfunding of the QCTO and its unstable funding model impact its ability to realise its
+full potential in the PSET system. The committee welcomed the SETA Grant Regulations
+review process underway, which will enable the entity to receive 1 percent as opposed to 0.5
+percent from the SETA levy grant.
+ The low representation of women in the senior management level of the entity remains a
+concern, although it boasts 53 per cent women in its staff complement. The entity undertook
+to prioritise the recruitment of women to senior management in the future.
+5.5. National Skills Fund
+ The trend of poor performance and poor audit outcomes, which points to poor governance
+and management, is very concerning. In a period of four years, from 2019/20 to 2022/23, the
+NSF obtained two disclaimer audit opinions (2019/20 and 2020/21) and three qualified audit
+opinions (2021/22 and 2022/23).
+ The inadequate implementation of the audit action plan, where 14 per cent of the audit
+findings against the target of 100 per cent were implemented. Of great concern is that the42
+For the year under review, the Department applied virements amounting to R82,8 million (R43,7
+million in 2021/22). Virements were applied from two programmes as follows: R5,4 million from
+Programme 3: University Education to Programme 1: Administration, R77,3 million from programme
+4: Technical and Vocational Education and Training to Programme 1: Administration: R7,2 million,
+programme 5: Skills Development: R4,4 million and Programme 6: CET: R65,6 million.
+Regarding performance against the 2022/23 APP, the Department achieved 59 or 53 per cent of the
+111 planned targets, which is not commensurate with the budget spent. The 2022/23 performance of
+the Department in both direct outputs and system targets has regressed compared to the 2021/22
+performance.
+The Department obtained an unqualified audit opinion with findings for the year under review. It is
+worth noting that the Department obtained a clean audit on its 2022/23 financial statements, and there
+were no findings on compliance with legislation. However, the AG identified material findings in its
+annual performance report. The findings were related to the four delivery programmes: University
+Education, TVET, Skills Development and CET.
+The Committee noted with concern the outstanding audits of the TVET colleges (Taletso, Central
+Johannesburg and Coastal) and universities (University of South Africa, University of Limpopo,
+University of Fort Hare and Vaal University of Technology), including the two outstanding audits
+(2021/22 and 2022/23) of the NSFAS. The Committee implores the University and TVET branches to
+ensure that the outstanding audits are finalised and submitted for audit.
+The increased regression in the audit outcomes of SETAs (BANKSETA, ETDP SETA, Health and
+Welfare SETA, Manufacturing, Engineering and Related Services SETA(MERSETA) and Transport
+and Education SETA), particularly regression from unqualified audit opinions in 2021/22 to qualified
+audit opinion in 2022/23, was noted as a serious concern. Further concerning were the entities (NSF,
+Services SETA and Construction SETA) that remained qualified with findings, some of which were in
+the qualified category for consecutive audit cycles.
+Irregular expenditure in the Higher Education and Training Portfolio for the 2022/23 financial year
+remained at R1,7 billion. Five SETAs (MERSETA, SSETA, CETA, AgriSETA and Culture, Arts,
+Tourism, Hospitality and Sports SETA (CATHSSETA) were the top five contributors to the R1,7 billion
+irregular expenditure. The committee noted the accumulation of reserves by SETAs, which amounted
+to R12 billion during the year under review.
+The Committee commends the Quality Councils (CHE and QCTO) and SAQA for obtaining clean
+audit opinions and good performance for the 2022/23 financial year. The Committee remains
+concerned about the financial constraints experienced by the QCs and SAQA, especially as they are
+in the process of implementing 4IR-aligned digital transformation strategies. The Committee
+welcomes the proclamation by the President of the NQF Amendment Act, 2019, which will assist in
+addressing misrepresentation and fraudulent qualifications.
+7. RECOMMENDATIONS
+The Committee, having assessed the 2022/23 Annual Reports of the Department and entities,
+recommends that the Minister of Higher Education, Science and Innovation and the Minister of
+Finance consider the following:
+7.1. Department of Higher Education and Training
+7.1.1.Programme 1: Administration
+ The organisational review process should be expedited to ensure that the Department
+operates with a fit-for-purpose organisational structure that will improve service delivery.
+ The Department should ensure that all precautionary measures are taken to create a safe
+and risk-free working environment at the new premises (CSIR Building).
+7.1.2.Planning, Policy and Strategy
+ The Department should expedite the development and implementation of the integrated
+information management system for PSET to ensure optimal utilisation of PSET resources
+and address leakages (such as learners with ID numbers not on the Home Affairs system,43
+learners double dipping from NSFAS, Funza Lushaka, NSF and SETAs, funding of
+deceased learners, learners in multiple SETAs and NSF, and learners reported in multiple
+years) as evidenced by the AG’s findings.
+ The Department should strengthen its oversight and monitoring of the performance of its
+entities and ensure that consequence management is implemented against
+underperformance and poor audit outcomes.
+ The Department should ensure that its Annual Performance Plan (APP) 2024/25 contains
+realistic key performance indicators that are achievable.
+ The Department should speed up the process of finalising the comprehensive student
+funding model for the PSET system.
+7.1.3.University Education
+ The Department should work closely with NSFAS to ensure that the entity finalises its close-
+out project so that it can table its Annual Reports for 2021/22 and 2022/23 as per the
+prescribed legal requirements.
+ The Department should ensure that the University of South Africa (UNISA), the University of
+Limpopo, University of Fort Hare, and the Vaal University of Technology finalise and submit
+the outstanding audits to AGSA.
+ The Minister should consider amending the regulations to prescribe a specific date for the
+submission of the financial statements for audit and ensure that these financial statements
+comply with the accounting framework.
+ The Department should develop a process that prevents employees from doing business
+with the universities without declaring their interest.
+ The Department and the Branch should play a more effective role in designing standardised
+policies and procedures within the universities.
+ The Department should ensure that universities’ performance information is supported by
+credible records and improve the review of the performance reported in the annual
+performance report.
+ The Department ensures that universities’ in-year monitoring activities are strengthened to
+enhance the preparation of financial and performance reports.
+7.1.4.Programme 4: Technical and Vocational Education and Training
+ There is a need for strengthened collaborations and partnerships with the private sector to
+increase placement opportunities for TVET students who require work-integrated learning
+experience to complete their qualifications, including placement of lecturers to gain industry
+exposure.
+ The Department should ensure that Taletso, Central Johannesburg, and Coastal TVET
+colleges finalise and submit the outstanding audits to the AGSA.
+ The Department should monitor the implementation of TVET colleges’ audit action plans and
+implement consequence management against the Councils and management if there is
+inadequate implementation of the plans.
+7.1.5.Programme 4: Skills Development
+ The Department should analyse the R12 billion accumulated cash surplus reserves (of
+SETAs and assess whether there is an alignment to the projects committed to ensure efficient
+utilisation of these reserves. The Department should also explore how these funds could be
+reprioritised to fund other PSET areas that are financially constrained.
+ The Department should ensure that SETAs align their budgets with the annual performance
+plan targets to ensure optimal utilisation of budgets.
+ The Department should expedite the implementation of the recommendations of the
+Ministerial Task Team on Strategic Review of the National Skills Fund (NSF) to address the
+identified areas of overlap and duplication between the NSF and the SETAs.
+ The Department should monitor the implementation of audit action plans developed by the
+NSF and SETAs who obtained qualified audit opinions. Consequence management should be
+implemented against entities that fail to implement the audit action plans to address the AG
+findings.
+ The Department should follow up on the progress made by the NSF in resolving material
+irregularities.44
+7.1.6.Programme 6: Community Education and Training
+ Additional resources and support should be provided for the CET sector so that it can move
+from its development state and become the institutions of choice for many young people and
+adults who are not in education, training, or employment. These colleges should also assist
+with the provision of programmes informed by their local economic needs.
+ The capacity development programme for lectures in the CET sector should be strengthened
+so that the sector can produce good outcomes.
+ The Department should strengthen its collaboration with DPWI to repurpose underutilised
+infrastructure and land for the expansion of the CET sector. More provinces should be
+encouraged to allocate land for the construction of Community Learning Centres.
+7.2. Council on Higher Education
+ The CHE should undertake a study on the capacity of the higher education sector to meet the
+growing demand for higher education through a differentiated approach.
+ While cognizant of the current fiscal constraint, consideration for additional funding should be
+made to enable the CHE to:
+o Carry out the increased scope of work.
+o Make progress in implementing the Digital Transformation Strategy so that the CHE
+can carry out its work effectively in a 21st century world and in the context of the 4IR.
+o Resource the additional transformation oversight function.
+o Increase the capacity of the CHE to bring the public and private higher education
+colleges more closely into its quality assurance oversight given that the higher
+education sector is much bigger now than in the earlier years of the CHE, the private
+higher education sector is growing rapidly, and to address the proliferation of bogus
+education institutions.
+o Have a fit-for-purpose organisational structure that matches the work that needs to be
+done, especially as it introduces the new Quality Assurance Framework.
+7.3. South African Qualifications Authority
+ The entity should expedite the implementation of the automation project to assist in improving
+the turnaround time for the verification of foreign qualifications.
+ SAQA should speed up the process of filling vacant positions, which also contributes to
+underspending.
+ Additional funding over the MTEF period (2024/25 – 2026/27) should be considered to:
+o Enable SAQA to fund automation and digitisation; verification of South African
+qualifications and the NQF Chair (Research), and
+o Implement the phased-in approach of the automation Project Phoenix.
+7.4. Quality Council for Trades and Occupations
+ The entity should prioritise the appointment of female candidates at the senior management
+level.
+ The entity should expedite the filling of vacant positions.
+7.5. National Skills Fund
+ The internal audit and project management units should be strengthened to fulfil their
+functions.
+ Procurement of an automated performance management and information system should be
+expedited so that the entity can eradicate funding of beneficiaries already funded by other
+government initiatives.
+
+...
+
+[Message clipped]  View entire message
+ One attachment  •  Scanned by Gmail
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+AttachmentsApr 8, 2024, 10:59 AM (3 days ago)
+	
+to me, tshigombekb, maraba.a, lundt.s, tena.m, lutuka.m, President, esther.rammultla, modiba.d, dmandaha, callcentre, careerhelp, confirmations, verification, dfqeas, saqainfo, sonnika.s
+...
+
+[Message clipped]  View entire message
+ 6 Attachments  •  Scanned by Gmail
+	
+Page 1 of 28
 
 
