@@ -25,6 +25,1420 @@ Electrical Worker Training Group
 Please let us know if you have any additional training questions.
  
  
+Conversation opened. 12 messages. 2 messages unread.
+
+Skip to content
+Using Gmail with screen readers
+5 of 389
+Tshingombe Tshitadi reported a new issue in the Visual Studio developer community
+Inbox
+Visual Studio <visualstudio-noreply@microsoft.com>
+	
+Mon, Mar 18, 12:05 PM
+	
+to me
+Microsoft Visual Studio 	
+engineering electrical databse implentation
+
+Tshingombe Tshitadi reported a new issue in the Visual Studio developer community.
+	
+
+Description:
+
+Conversation opened. 1 unread message.
+Skip to content
+Using Gmail with screen readers
+2 of 4,381
+[GitHub] You have been blocked from opencollective
+Inbox
+GitHub
+10:02 AM (8 minutes ago)
+to me
+Blocked from the opencollective organization
+You have been blocked from the opencollective organization
+A maintainer of the @opencollective organization has blocked you because of a recent post. For more information please see the community guidelines or contact the maintainer at [Redacted]@[Redacted]
+You’re receiving this email because you have been blocked by an organization on GitHub.
+GitHub, Inc. ・88 Colin P Kelly Jr Street ・San Francisco, CA 94107
+Conversation opened. 1 read message.
+Skip to content
+Using Gmail with screen readers
+23 of 4,382
+Thank you for contacting Open Collective
+Inbox
+Open Collective support@opencollective.com
+Sun, Mar 17, 8:44 AM (1 day ago)
+to me
+Hello,
+Thank you for reaching out! Our small but mighty team is here to help you Monday to Friday across multiple timezones. We aim to respond to inquiries within 3 business days.
+Did you know we have a dedicated support section on our website, which can answer many common questions? You may wish to learn about setting up a new Collective, finding the right Fiscal Host, how to manage recurring payments, all kinds of contributions and expenses, and much more.
+Thank you for being a part of our community,
+The Open Collective support team
+333332:1060163
+Conversation opened. 1 read message.
+Skip to content
+Using Gmail with screen readers
+25 of 4,383
+You’re now a GitHub Insider!
+Inbox
+GitHub <[Redacted]@[Redacted]>
+Sun, Mar 17, 8:38 AM (1 day ago)
+to me
+Thanks for subscribing to The GitHub Insider! We’re glad you’re here.
+In this monthly newsletter, you can expect:
+• Fresh tips and tricks you can do on GitHub to boost your productivity and happiness.
+• Opportunities to connect to the larger GitHub community, with info about upcoming events, meetups, and webinars.
+• Exclusive access to swag promos, technical previews, GitHub events, and more.
+All the best,
+Your GitHub newsletter team
+P.S. To ensure you receive the newsletters, please add [Redacted]@[Redacted] to your safe sender list or address book.
+Terms • Privacy • Sign in to GitHub
+         
+GitHub, Inc.
+88 Colin P Kelly Jr St.
+San Francisco, CA 94107
+Help & Support
+Hi, How can we help?
+Our support team is available from Monday to Friday. Please expect a response within 3 business days.
+You can also browse the topics below to find what you’re looking for.
+Browse Topics
+Collective Profiles
+Fiscal Hosts
+Contributions
+Expenses
+Projects
+Security
+Couldn’t find what you were looking for?
+This is how Open Collective works
+Open Collective enables all kinds of collaborative groups, initiatives, and projects to raise, manage, and spend money transparently.
+How it works
+Get to know us!
+We know making the case up the chain is not always easy. For all you heroes inside companies, we put together some resources to help you succeed.
+Know more about us
+We’re here if you want to talk!
+Join our slack community
+https://slack.opencollective.com/
+Bugs & feature requests
+https://github.com/opencollective
+Make your community sustainable.
+Change language
+Home
+Help & Support
+Privacy
+Terms
+Open Collective - Make your community sustainable. Collect and spend money transparently.
+DashboardExplore
+fiston tshingombe
+COLLECTIVE
+javascript
+community
+Engineering electrical assessment career but sustainability
+Contribute
+Connect
+About
+Contribute
+Become a financial contributor.
+Financial Contributions
+Recurring contribution
+Backer
+Become a backer for $5.00 per month and support us
+Starts at
+$5 USD / month
+Recurring contribution
+Sponsor
+Become a sponsor for $100.00 per month and support us
+Starts at
+$100 USD / month
+Custom contribution
+Donation
+Make a custom one-time or recurring contribution.
+Create Contribution Tier
+Projects
+Manage finances for a project or initiative separate from your collective budget.
+Create Project
+Events
+Set up events for your community and sell tickets that go straight to your budget.
+Create Event
+fiston tshingombe is all of us
+Our contributors 1
+Thank you for supporting fiston tshingombe.
+Fistin
+Admin
+Connect
+Let’s get the ball rolling!
+News from fiston tshingombe
+Updates on our activities and progress.
+Report your progress and keep your community up to date.
+Conversations
+Let’s get the discussion going! This is a space for the community to converse, ask questions, say thank you, and get things done together.
+Use this section to get the community involved in open discussions.
+About
+Tell your story and explain your purpose.
+Our team
+Fistin
+Admin
+Make your community sustainable.
+Change language
+Home
+Help & Support
+Privacy
+Terms
+fiston tshingombe - Open Collective
+DashboardExplore
+fiston tshingombe
+Collective admin
+Public profile
+Overview
+Expenses
+Contributors
+Contributions
+Transactions
+Tiers
+Team
+Settings
+Overview
+compared to
+Recent activity
+No activity yet
+Accounts
+Main account
+fiston tshingombe
+$0.00
+Make your community sustainable.
+Change language
+Home
+Help & Support
+Privacy
+Terms
+Dashboard - Open Collective
+DashboardExplore
+Contribute
+Budget
+Connect
+About
+Invoice Summary to fiston tshingombe
+Request payment from fiston tshingombe. Expenses will be processed once approved by a Collective admin. The amount, description, and your profile name are public, but attachments, payment details, and other personal info is kept private.
+engineering databse
+Invoice
+Submitted by Fistin
+Mar 18, 2024
+Invoice items
+engineering data system
+Date: December 3, 2024
+$10,000,000.00 USD
+Total amount $10,000,000.00 USD
+Attachments
+visual tshingombe.pdf
+Additional Information
+Collective
+fiston tshingombe@fiston-tshingombe
+Balance:
+$1,000,000.00 USD
+Pay to
+Fistin@fistin
+20 percy street 103 jhb jhb 1030 Gauteng
+ZA
+payout method
+Other
+Details
+engineering data base
+Additional invoice information
+23
+Is this a recurring expense?
+Choose this option to automatically submit a copy of this invoice on a periodic basis.
+Add notes
+(optional)
+Collective balance
+$1,000,000.00 USD
+Fiscal Host
+fiston tshingombe
+FAQ
+How do I get paid from a Collective?
+How are expenses approved?
+Is my private data made public?
+When will I get paid?
+Why do you need my legal name?
+More info →
+Make your community sustainable.
+Change language
+Home
+Help & Support
+Privacy
+Terms
+New expense - Open Collective
+DashboardExplore
+Contribute
+Budget
+Connect
+About
+Invoice #193520 to fiston tshingombe
+engineering databse
+Approved
+Invoice #193520
+Submitted by Fistin•Approved by Fistin
+Mar 18, 2024•
+0
+Invoice items
+engineering data system
+Date: December 3, 2024
+$10,000,000.00 USD
+Total amount $10,000,000.00 USD
+Attachments
+visual tshingombe.pdf
+56.12 KB
+Additional Information
+Collective
+fiston tshingombe@fiston-tshingombe
+Balance:
+$1,000,000.00 USD
+Pay to
+Fistin@fistin
+20 percy street 103 jhb jhb 1030 Gauteng
+ZA
+payout method
+Other
+Details
+engineering data base
+Additional invoice information
+23
+Notes
+Private note
+engineering policeassessment
+Your comments are private.
+Expenses comments are private, because they sometimes contain confidential information such as payment details. Only the expense submitter and the admins can see them.
+By Fistinon March 18, 2024
+Expense created
+By Fistinon March 18, 2024
+Expense approved
+Post as a private note for the host admins
+Collective balance
+$1,000,000.00 USD
+Fiscal Host
+fiston tshingombe
+FAQ
+How do I get paid from a Collective?
+How are expenses approved?
+Is my private data made public?
+When will I get paid?
+Why do you need my legal name?
+More info →
+Make your community sustainable.
+Change language
+Home
+Help & Support
+Privacy
+Terms
+engineering databse · Expense #193520 - Open Collective
+DashboardExplore
+Pick a repository
+Don't see the repository you're looking for? Get help.
+Want to apply using an alternative verification criteria? Click here.
+t5h2i0tadi/dev-azur-tshingo
+Personal Repo
+0
+ENGINEERING 34
+t5h2i0tadi/engineering-tshing-binair-archfile-
+Personal Repo
+0
+ENGINEERING
+t5h2i0tadi/enginering-tshingomb
+Personal Repo
+0
+engineering st peace
+t5h2i0tadi/fiston
+Personal Repo
+0
+engineering
+t5h2i0tadi/t5h2i0tadi
+Personal Repo
+0
+Config files for my GitHub profile.
+t5h2i0tadi/tshingombe
+Personal Repo
+0
+engineering
+t5h2i0tadi/tshingombe-enginerig-data-science-sarb-
+Personal Repo
+0
+data science
+FAQ
+Who will hold money for my Collective?
+What is the cost?
+More info
+Make your community sustainable.
+Change language
+Home
+Help & Support
+Privacy
+Terms
+Conversation opened. 1 unread message.
+Skip to content
+Using Gmail with screen readers
+7 of 4,390
+New financial contributor to fiston tshingombe: fiston tshingombe ($1,000,000.00)
+Inbox
+Open Collective info@opencollective.com
+Unsubscribe
+10:29 AM (12 minutes ago)
+to me
+New financial contributor
+Hi Fistin,
+fiston tshingombe has become a new financial contributor to fiston tshingombe.
+About fiston tshingombe
+Engineering electrical assessment career but sustainability
+https://opencollective.com/fiston-tshingombe
+Order
+engineering tshigombe data azure
+Tier: backer
+Amount: $1,000,000.00
+We can do great things together
+To unsubscribe from notifications of new members, click here
+You can also follow us on Twitter or come chat with us on our public Slack channel.
+Made with from all over the world
+Conversation opened. 1 unread message.
+Skip to content
+Using Gmail with screen readers
+6 of 4,390
+New expense on fiston tshingombe: $10,000,000.00 for engineering databse
+Inbox
+Open Collective info@opencollective.com
+Unsubscribe
+10:34 AM (7 minutes ago)
+to me
+$10,000,000.00
+engineering databse
+Payee: Fistin
+Submitted by: Fistin
+Expense items
+engineering data system
+Date: December 3rd 2024 $10,000,000.00
+Total Amount $10,000,000.00
+View
+We can do great things together
+To unsubscribe from notifications of new expenses submitted to this collective, click here
+You can also follow us on Twitter or come chat with us on our public Slack channel.
+Made with from all over the world
+Conversation opened. 1 unread message.
+Skip to content
+Using Gmail with screen readers
+5 of 4,390
+Your expense to fiston tshingombe for $10,000,000.00 has been approved ✓
+Inbox
+Open Collective <[Redacted]@[Redacted]>
+10:34 AM (8 minutes ago)
+to me
+Your expense, engineering databse, has been approved.
+Most payments are processed within a few days, but the timing will depend on the available budget of fiston tshingombe, the payment method, and other factors.
+If you have any questions related to this expense, please post a comment on the expense page.
+$10,000,000.00
+engineering databse
+Submitted by: Fistin
+Payout method: Other
+Private note: engineering policeassessment
+Expense items
+engineering data system
+Date: December 3rd 2024 $10,000,000.00
+Total Amount $10,000,000.00
+View Expense
+We can do great things together
+You can also follow us on Twitter or come chat with us on our public Slack channel.
+Made with from all over the world
+Conversation opened. 1 unread message.
+Skip to content
+Using Gmail with screen readers
+4 of 4,390
+New expense approved on fiston tshingombe: $10,000,000.00 for engineering databse
+Inbox
+Open Collective info@opencollective.com
+Unsubscribe
+10:34 AM (9 minutes ago)
+to me
+$10,000,000.00
+engineering databse
+Submitted by: Fistin
+Payout method: Other
+Private note: engineering policeassessment
+Expense items
+engineering data system
+Date: December 3rd 2024 $10,000,000.00
+Total Amount $10,000,000.00
+View Expense
+We can do great things together
+To unsubscribe from notifications of new expenses approved under this host, click here
+You can also follow us on Twitter or come chat with us on our public Slack channel.
+Made with from all over the world
+Conversation opened. 2 messages. 2 messages unread.
+Skip to content
+Using Gmail with screen readers
+3 of 4,390
+New message from Fistin on Open Collective: engineering
+Inbox
+Open Collective info@opencollective.com
+10:25 AM (18 minutes ago)
+to me
+Hi Fistin,
+Fistin just sent a message to fiston tshingombe on Open Collective. Simply reply to this email to reply to the sender.
+Subject
+engineering
+Message
+collection
+If this message is spam, please forward it to [Redacted]@[Redacted]
+We can do great things together
+You can also follow us on Twitter or come chat with us on our public Slack channel.
+Made with from all over the world
+Open Collective info@opencollective.com
+10:36 AM (7 minutes ago)
+to me
+Hi Fistin,
+Fistin just sent a message to fiston tshingombe on Open Collective. Simply reply to this email to reply to the sender.
+Subject
+engineering
+Message
+Open Collective Dashboard Explore Contribute Budget Connect About Invoice #193520 to fiston tshingombe engineering databse Approved Invoice #193520 Submitted by Fistin•Approved by Fistin Mar 18, 2024• 0 Invoice items engineering data system Date: December 3, 2024 $10,000,000.00 USD Total amount $10,000,000.00 USD Attachments Uploaded file preview visual tshingombe.pdf 56.12 KB Additional Information Collective fiston tshingombe@fiston-tshingombe Balance: $1,000,000.00 USD Pay to Fistin@fistin 20 percy street 103 jhb jhb 1030 Gauteng ZA payout method Other Details engineering data base Additional invoice information 23 Notes Private note engineering policeassessment Your comments are private. Expenses comments are private, because they sometimes contain confidential information such as payment details. Only the expense submitter and the admins can see them. By Fistinon March 18, 2024 Expense created By Fistinon March 18, 2024 Expense approved Post as a private note for the host admins Collective balance $1,000,000.00 USD Fiscal Host fiston tshingombe FAQ How do I get paid from a Collective? How are expenses approved? Is my private data made public? When will I get paid? Why do you need my legal name? More info → Open Collective Make your community sustainable. Change language Home Help & Support Privacy Terms engineering databse · Expense #193520 - Open Collective
+If this message is spam, please forward it to [Redacted]@[Redacted]
+We can do great things together
+You can also follow us on Twitter or come chat with us on our public Slack channel.
+Made with from all over the world
+Conversation opened. 1 unread message.
+Skip to content
+Using Gmail with screen readers
+1 of 4,390
+Thanks for applying to Open Source Collective
+Inbox
+[Redacted]@[Redacted]
+10:39 AM (6 minutes ago)
+to me
+Oh hey Fistin
+Thank you for applying to Open Source Collective to host Dev Azur Tshingo.
+Please make sure that your Collective page describes your purpose and activities as accurately as possible, as we will look at this info when reviewing your application.
+If you have any questions, feel free to respond to this email.
+– Open Source Collective
+We can do great things together
+You can also follow us on Twitter or come chat with us on our public Slack channel.
+Made with from all over the world
+Conversation opened. 1 read message.
+Skip to content
+Using Gmail with screen readers
+13 of 4,390
+Your pending order for Symfony certification
+Inbox
+Symfony Team support@app.symfony.com
+9:41 AM (1 hour ago)
+to me
+Symfony Certifications
+You have a pending order
+On March 17, 2024 you placed an order to buy a voucher for Symfony certification exam, but you haven't completed the payment yet.
+Check out the details of your pending order to complete its payment or to cancel it.
+Best regards,
+The Symfony Team
+certification.symfony.com
+Symfony - 163 quai du Docteur Dervaux - CS 30083 - 92665 Asnières sur Seine Cedex (France)
+Conversation opened. 1 unread message.
+Skip to content
+Using Gmail with screen readers
+38 of 4,390
+[Action required] Provide information about your Stripe account for Tshingombe tshitadi
+Inbox
+Stripe accounts@stripe.com
+Sat, Mar 16, 10:22 PM (2 days ago)
+to me
+Hi Tshingombe,
+
+
+We're reaching out because we haven't been able to verify the personal address you provided for Tshingombe tshitadi when you submitted your Stripe account application for Tshingombe tshitadi.
+
+
+If we can't verify your personal address for Tshingombe tshitadi , we might have to pause your account's ability to pay out funds to your bank account in the future, so we recommend that you update your address as soon as possible.
+
+
+You can update your address by following the link below or heading to your Dashboard and updating it under Business Settings:
+
+
+Update your personal address
+
+
+
+
+You can expect a response from us within two days after we receive your information.
+
+
+If you have any questions, you can contact us at any time from our support site.
+
+
+— The Stripe team
+
+
+
+
+
+This email relates to your Tshingombe tshitadi Stripe account.
+Account ID: acct_1Ov2sHIvRTjJhohX
+Need to refer to this message? Use this ID: em_gybkcq2qrun55idjb7vhbogsozamto
+Stripe, 354 Oyster Point Blvd, South San Francisco, CA 94080
+
+You are subscribed to Account status requests emails. Manage your communication preferences here.
+
+
+
+
+Page | 35Test mode
+You're using test data. Activate your account to access all live data.
+Activate account
+Set up
+Go live
+Add business details to accept paymentsor discover other Stripe products
+Continue
+API keys for developers
+Skip to content
+Search
+Developers
+Test mode
+Tshingombe tshitadi
+• Home
+• Payments
+• Balances
+• Customers
+• Billing
+• More
+Stripe Shell
+Test mode
+Welcome to the Stripe Shell!
+Stripe Shell is a browser-based shell with the Stripe CLI pre-installed. Log in to your
+Stripe account and press Control + Backtick (`) on your keyboard to start managing your Stripe
+resources in test mode.
+View supported Stripe commands:
+Find webhook events:
+Listen for webhook events:
+Call Stripe APIs: stripe [api resource] [operation] (e.g.,
+)
+$
+Skip to content
+Save for later
+Activate Payments
+1
+Verify your business
+2
+Add your bank
+3.
+•
+Secure your account
+•
+Add extras
+5
+Review and finish
+6.
+Summary
+Review and finish up
+You’re almost ready to get started with Stripe. Take a moment to review and confirm your information.
+Business details
+Missing required information
+Edit
+Tshingombe tshitadi
+www.https://dashboard.stripe.com/account/onboarding/business
+Public details
+Update support information
+Shown as HTTPS://DASHBOAD.COM on customer statements
+Percy Avenue
+Cleveland, OH US
++1 (205) 639-6333
+Management and ownership
+Missing required information
+Update
+Tshingombe tshitadi
+Account representative
+[Redacted]@[Redacted]
+Born on October 11, 1982
+Percy Avenue
+Cleveland, OH 44127 US
+Payout details
+Missing a bank accountAdd a bank account where you'll receive your payouts.
+Add
+two-step authentication
+Two-step authentication is enabled.
+Tax calculation
+Automatic tax calculationMonitor your tax obligations for free. After you finish setting up Stripe Tax, you’ll be charged only when tax is calculated.
+Climate contributions
+Climate contributions
+1% of revenue
+Contribute after $1,000,000,000 has been processed
+By submitting this form, you agree to the Stripe Services Agreement, to receiving autodialed text messages from Stripe, and you certify that the information provided is complete and correct. You also acknowledge the Acquirer Disclosure.
+Agree and submit
+Test mode
+You're using test data. Activate your account to access all live data.
+Activate account
+Billing
+5 steps to goNext up: Set up your product catalog
+DismissView steps
+Subscriptions
+Set up recurring payments
+Invoices
+Create and send invoices
+Quotes
+Provide pricing estimates
+Revenue recovery
+Manage involuntary churn and recover failed payments
+Growth
+MRR
+Updated 12:00 AM
+Active subscribers
+Updated 12:00 AM
+MRR growth
+Updated 12:00 AM
+Active subscribers growth
+Updated 12:00 AM
+Net volume
+Updated 12:00 AM
+New subscribers
+Updated 12:00 AM
+New trials
+Updated 12:00 AM
+Trial conversion rate
+Updated 12:00 AM
+Report Downloads
+MRR per subscriber per month
+Includes the MRR for each subscriber at the end of the month.
+Download…
+Subscription metrics per month
+Includes your MRR roll-forward, subscriber roll-forward, retention, and customer value for each month.
+Download…
+Products
+by
+Product MRR
+There are no products with MRR
+Updated 12:00 AM
+Retention
+Subscriber churn rate
+Updated 12:00 AM
+Churned revenue
+Updated 12:00 AM
+Retention by cohort
+Subscribed Start value Month 1 Month 2 Month 3 Month 4 Month 5 Month 6 Month 7 Month 8 Month 9 Month 10 Month 11 Month 12
+Subscribers
+Average revenue per user
+Updated 12:00 AM
+Subscriber lifetime value
+Updated 12:00 AM
+Top subscribers
+Customer Total paid
+No active subscribers
+Recently churned subscribers
+Customer MRR Reason
+No churned subscribers
+Collections
+Outstanding invoices
+Invoice age Invoices Amount
+No invoices due
+Top customers in recovery
+New
+View revenue recovery
+Customer In recovery Customer since
+No data available
+View all
+Skip to content
+Search
+Developers
+Test mode
+Https:
+• Home
+• Payments
+• Balances
+• Customers
+• Billing
+• More
+Stripe Shell
+Test mode
+Welcome to the Stripe Shell!
+Stripe Shell is a browser-based shell with the Stripe CLI pre-installed. Log in to your
+Stripe account and press Control + Backtick (`) on your keyboard to start managing your Stripe
+resources in test mode.
+View supported Stripe commands:
+Find webhook events:
+Listen for webhook events:
+Call Stripe APIs: stripe [api resource] [operation] (e.g.,
+)
+(Https:) $
+Test mode
+You're using test data. Activate your account to access all live data.
+Activate account
+Balances
+Manage payouts
+OverviewTop-upsPayouts
+Add a USD-denominated bank account to pay out your USD balance
+Add bank account
+USD balance
+On the way to your bank account
+$0.00
+Funds on hold
+$0.00
+Total
+$0.00
+Highlighted report
+Balance
+Reconcile your Stripe balance and download your categorized transaction history.
+Upcoming to your bank
+These funds will start being paid out again once you have resolved the issue with your bank account above.
+1 week
+Mar 18–Mar 25
+Total for Mar 18 - Mar 25
+$0.00
+Total
+$0.00
+On the way to your bank
+Total
+$0.00
+Looking for the status of a payout?
+Click on a payout to view its details and where it is in the payout process, as well as information to help resolve any issues.
+Recently completed
+You have not yet had any completed payouts.
+Skip to content
+Search
+Developers
+Test mode
+Https:
+• Home
+• Payments
+• Balances
+• Customers
+• Billing
+• More
+Stripe Shell
+Test mode
+Welcome to the Stripe Shell!
+Stripe Shell is a browser-based shell with the Stripe CLI pre-installed. Log in to your
+Stripe account and press Control + Backtick (`) on your keyboard to start managing your Stripe
+resources in test mode.
+View supported Stripe commands:
+Find webhook events:
+Listen for webhook events:
+Call Stripe APIs: stripe [api resource] [operation] (e.g.,
+)
+(Https:) $
+Test mode
+You're using test data. Activate your account to access all live data.
+Activate account
+Reports
+Get started with Revenue Recognition
+Access out-of-the-box revenue reports that automatically capture your latest Stripe data and streamline accrual accounting. You can also import non-Stripe transactions and terms or set custom rules to recognize revenue in line with your accounting practices.
+Try it free
+View features
+Balance
+Payout reconciliation
+Changes to your Stripe balance from Mar 16–Mar 17, based on the
+date of the balance change
+. Useful to record how your Stripe balance changed.
+Month-to-date
+Mar 16–Mar 17
+UTC
+Schedule…
+Print
+Daily data is currently available through
+Mar 17 UTC
+. Additional data will be available by Mar 19, 12:00 PM UTC.
+Balance summaryShows starting and ending balance in your Stripe account. Starting balance is the sum of your available balance and pending balance. Changes to your balance come from activity (payments, refunds, transfers, etc.) and from payouts to your bank (aggregated here and broken out in detail in the reports below).
+Download
+Explore
+Starting balance —
+Mar 16 UTC
+$0.00
+Net balance change from activity
+$0.00
+Total payouts
+$0.00
+Ending balance —
+Mar 17 UTC
+$0.00
+Balance change from activityDetailed breakdown of the balance change from activity line from the above Balance Summary report. Includes changes to your Stripe balance from activity (payments, refunds, transfers, etc.), excluding payouts, as well as itemized downloads.
+Download
+Explore
+Charges
+Count
+0
+Download
+Gross amount
+$0.00
+Refunds
+Count
+0
+Download
+Gross amount
+$0.00
+Balance change from activity
+0
+$0.00
+PayoutsDetailed breakdown of the total payouts line from the above Balance Summary report. Includes changes to your Stripe balance, from payouts to your bank, as well as itemized downloads.
+Download
+Payouts
+Count
+0
+Download
+Gross amount
+$0.00
+Preparing file for download…
+Skip to content
+Search
+Developers
+Test mode
+Https:
+• Home
+• Payments
+• Balances
+• Customers
+• Billing
+• More
+Recent
+• Reports
+Stripe Shell
+Test mode
+Welcome to the Stripe Shell!
+Stripe Shell is a browser-based shell with the Stripe CLI pre-installed. Log in to your
+Stripe account and press Control + Backtick (`) on your keyboard to start managing your Stripe
+resources in test mode.
+View supported Stripe commands:
+Find webhook events:
+Listen for webhook events:
+Call Stripe APIs: stripe [api resource] [operation] (e.g.,
+)
+(Https:) $
+Test mode
+You're using test data. Activate your account to access all live data.
+Activate account
+You've created your first test link
+To charge your customers, activate payments by verifying your business and connecting your bank account.
+Activate payments
+PAYMENT LINK
+engineering for $100.00 USD
+Copy and share to start accepting payments with this link.
+Copy
+QR code
+Buy button
+More options
+Products
+Name Quantity Adjustable Quantity
+engineering
+$100.00 USD 1 No
+Payment methods
+Manage
+Payment information is not collected at checkout when the total is free.
+If an order requires a payment, the following payment methods are available at checkout:
+Card,
+Apple Pay, and
+Google Pay
+Details
+Status
+Active
+Date created
+Mar 18, 9:24 AM
+Limited use
+No
+Custom fields
+Text (optional): tshingombe
+Allow promotion codes
+No
+Collect addresses
+Billing
+Collect phone numbers
+No
+Allow business customers to provide tax IDs
+Yes
+Save payment details for future use
+Yes
+Collect tax automatically
+No
+Collect terms of service agreement
+No
+Confirmation page
+Default
+Deactivated link page
+Default
+Call to action button
+Book
+Post-payment invoice
+No
+Metadata
+Edit metadata
+No metadata
+Events
+A payment link with ID plink_1OvcQZIvRTjJhohXAonld039 was created
+3/18/24, 9:24:19 AM
+Logs
+No logs
+Tips for using your link
+Charge your customers
+Activate payments by verifying your business and connecting your bank account.
+Activate payments
+Collect tax
+Calculate and collect the right sales tax, VAT, and GST on your Stripe transactions.
+Enable Stripe Tax
+Boost your sales
+Increase revenue by cross-selling your other products to your customers.
+Add cross-sells
+Increase conversion
+Win more international customers by turning on relevant, popular payment methods.
+Manage payment methods
+Customize your brand
+Match the look and feel of your brand by adding your logo, fonts, and colors.
+Brand settings
+Add your domain
+Use your own domain for your payment links.
+Custom domain settings
+Get notified
+Get an email after every successful payment by managing your settings.
+Manage communication preferences
+Preview
+Edit
+book.stripe.com
+Use your domain
+Skip to content
+Search
+Developers
+Test mode
+Https:
+• Home
+• Payments
+• Balances
+• Customers
+• Billing
+• More
+Recent
+• Payment links
+Stripe Shell
+Test mode
+Welcome to the Stripe Shell!
+Stripe Shell is a browser-based shell with the Stripe CLI pre-installed. Log in to your
+Stripe account and press Control + Backtick (`) on your keyboard to start managing your Stripe
+resources in test mode.
+View supported Stripe commands:
+Find webhook events:
+Listen for webhook events:
+Call Stripe APIs: stripe [api resource] [operation] (e.g.,
+)
+(Https:) $
+Conversation opened. 1 read message.
+Skip to content
+Using Gmail with screen readers
+53 of 4,398
+[GitHub] A third-party OAuth application has been added to your account
+Inbox
+GitHub
+Mar 16, 2024, 9:12 PM (2 days ago)
+to me
+Hey t5h2i0tadi!
+A third-party OAuth application (Open Collective) with public_repo and read:org scopes was recently authorized to access your account.
+Visit https://github.com/settings/connections/applications/af81e50527255ecf7cd6 for more information.
+To see this and other security events for your account, visit https://github.com/settings/security-log
+If you run into problems, please contact support by visiting https://github.com/contact
+Thanks,
+The GitHub Team
+Conversation opened. 2 messages. All messages read.
+Skip to content
+Using Gmail with screen readers
+56 of 4,398
+[Grav Community Forum] Confirm your new account
+Inbox
+Grav Community Forum Sat, Mar 16, 8:46 PM (2 days ago)
+Welcome to Grav Community Forum! Click the following link to confirm and activate your new account: https://discourse.getgrav.org/u/activate-account/f851153cb98
+Grav Community Forum notifications@getgrav.discoursemail.com
+Sat, Mar 16, 8:47 PM (2 days ago)
+to me
+Welcome to Grav Community Forum!
+Click the following link to confirm and activate your new account:
+https://discourse.getgrav.org/u/activate-account/6d37a9b75c3f195f9d20abc3f9f89536
+Attachment tshingombe github visual studio opened.docx added.
+None selected
+Skip to content
+Using Gmail with screen readers
+Message sent
+91 of 4,398
+dev.azure.com/tshingombefiston0053 is now ready!
+Inbox
+Azure DevOps
+Mar 15, 2024, 7:48 PM (3 days ago)
+to me
+Azure DevOps
+Welcome to Azure DevOps
+dev.azure.com/tshingombefiston0053 is all yours.
+Azure DevOps gives teams access to a wide set of developer services we think you'll love. Plan smarter, collaborate better, and ship faster with a set of modern dev services.
+Start your project
+Invite your team
+Invite fellow developers to your team or project to drive improved collaboration on your code, or create backlog items and bugs for tracking status. Stakeholders can check on a project's status and give feedback for free.
+Add users
+Details
+Your organization URL https://dev.azure.com/tshingombefiston0053
+Your preferred email [Redacted]@[Redacted]
+
+Review your details See your personal page
+
+Need help? Check out support options
+Keep in touch
+Sign up to receive periodic emails giving you resources, tips, and information on using Azure DevOps. You can unsubscribe at any time.
+Subscribe
+This message from Microsoft is an important part of a program, service, or product that you or your company purchased or participate in.
+Microsoft respects your privacy. Review our Online Services Privacy Statement.
+One Microsoft Way, Redmond, WA, USA 98052.
+Sent from Azure DevOps
+tshingombe fiston <[Redacted]@[Redacted]>
+Mar 15, 2024, 9:10 PM (3 days ago)
+to Azure
+Thanks, I'll check it out!
+tshingombe fiston
+11:49 AM (0 minutes ago)
+to Azure
+One attachment • Scanned by Gmail
+Skip to main contentAzure DevOps
+tshingombefiston
+/
+ENGINEERING TSHINGOMBE
+/
+Overview
+/
+Summary
+Account manager for Tshingombe Tshitadi
+ENGINEERING TSHINGOMBE
+OverviewSummaryDashboardsWiki
+Boards
+Repos
+Pipelines
+Test Plans
+Artifacts
+Project settings
+Loading...
+ENGINEERING TSHINGOMBE
+About this project
+Help others to get on board!
+Describe your project and make it easier for other people to understand it.
+Project stats
+Pipelines
+0%
+Builds succeeded
+Members
+1
+Attachment tshingombe github visual studio opened.docx added.
+Conversation opened. 1 read message.
+Skip to content
+Using Gmail with screen readers
+86 of 4,399
+Tshingombe Tshitadi reported a new issue in the Visual Studio developer community
+Inbox
+Visual Studio visualstudio-noreply@microsoft.com
+Fri, Mar 15, 9:05 PM (3 days ago)
+to me
+Engineering electrical assessment career but sustainability
+Tshingombe Tshitadi reported a new issue in the Visual Studio developer community.
+Description:
+Engineering electrical assessment career but sustainability
+Circulum parental meeting college and facilitator
+View full details >
+Manage your notification settings in the Developer Community portal.
+Privacy Statement
+Microsoft Corporation, One Microsoft Way, Redmond, WA 98052
+	
+View full details >
+	
+
+Manage your notification settings in the Developer Community portal.
+	
+
+Privacy Statement
+
+Microsoft Corporation, One Microsoft Way, ​Redmond, WA 98052​
+Microsoft 	
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Mon, Apr 8, 11:37 AM (3 days ago)
+	
+to TSHINGOMBEKB, Visual, me
+Mail Delivery Subsystem
+	
+Mon, Apr 8, 11:37 AM (3 days ago)
+	
+to me
+Error Icon
+Message blocked
+Your message to visualstudio-noreply@microsoft.com has been blocked. See technical details below for more information.
+The response from the remote server was:
+
+550 5.4.1 Recipient address rejected: Access denied. AS(201806281) [DM3NAM06FT011.Eop-nam06.prod.protection.outlook.com 2024-04-08T09:37:44.937Z 08DC55628728F112]
+
+
+
+---------- Forwarded message ----------
+From: tshingombe fiston <tshingombefiston@gmail.com>
+To: Visual Studio <visualstudio-noreply@microsoft.com>, tshingombe fiston <tshingombefiston@gmail.com>, TSHINGOMBEKB TSHITADI <TSHINGOMBEKB@gmail.com>
+Cc: 
+Bcc: 
+Date: Mon, 8 Apr 2024 11:37:23 +0200
+Subject: Re: Tshingombe Tshitadi reported a new issue in the Visual Studio developer community
+----- Message truncated -----
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Mon, Apr 8, 11:52 AM (3 days ago)
+	
+to Visual, TSHINGOMBEKB, me
+Skip to main contentAzure DevOps
+tshingombefiston0053
+/
+engineering college university transcript job volum librarie
+/
+Overview
+/
+Summary
+
+
+engineering college university transcript job volum librarie
+OverviewSummaryDashboardsWiki
+Boards
+Repos
+Pipelines
+Test Plans
+Artifacts
+Project settings
+Loading...
+engineering college university transcript job volum librarie
+About this project
+0
+job engineering book volume Skip to main content Learn 46307064 tshingombefiston@gmail.com MCID:995847175 Badges 851 Trophies 200 Reputation points 0 Accepted answers 0 Following 0 Followers 0 Level 16 70% 1,344,100/1,481,099 XP Activity Training Challenges Credentials Q&A Achievements Collections Transcript Past 7 days Apr 8 You asked a question question engineering 0 Votes 0 Comments 0 Answers Past 30 days Mar 19 You earned a trophy by completing a learning path. trophy Get started with Microsoft Fabric Mar 19 You earned a badge by completing a module. badge Get started with Data Activator in Microsoft Fabric Mar 19 Well done! You completed a module. 200 XP module Get started with Data Activator in Microsoft Fabric 1 hr 6 min Completed Mar 19 You earned a badge by completing a module. badge Get started with Real-Time Analytics in Microsoft Fabric Mar 19 Well done! You completed a module. 200 XP module Get started with Real-Time Analytics in Microsoft Fabric 53 min Completed Mar 19 You earned a badge by completing a module. badge Administer Microsoft Fabric Mar 19 Well done! You completed a module. 200 XP module Administer Microsoft Fabric 30 min Completed Mar 19 You earned a badge by completing a module. badge Create and manage a Power BI deployment pipeline Mar 19 Well done! You completed a module. 200 XP module Create and manage a Power BI deployment pipeline 42 min Completed Mar 19 You earned a badge by completing a module. badge Load data into a Microsoft Fabric data warehouse Mar 19 Well done! You completed a module. 200 XP module Load data into a Microsoft Fabric data warehouse 1 hr 10 min Completed Mar 19 You earned a trophy by completing a learning path. trophy Implement a Lakehouse with Microsoft Fabric Mar 19 You earned a badge by completing a module. badge Organize a Fabric lakehouse using medallion architecture design Mar 19 Well done! You completed a module. 200 XP module Organize a Fabric lakehouse using medallion architecture design 1 hr 7 min Completed Mar 19 You earned a trophy by completing a learning path. trophy Ingest data with Microsoft Fabric Mar 19 You earned a badge by completing a module. badge Ingest data with Spark and Microsoft Fabric notebooks Mar 19 Well done! You completed a module. 200 XP module Ingest data with Spark and Microsoft Fabric notebooks 48 min Completed Mar 12 You earned a trophy by completing a learning path. trophy Create vision models with Azure AI Custom Vision Mar 12 You earned a badge by completing a module. badge Detect objects in images Mar 12 Well done! You completed a module. 200 XP module Detect objects in images 55 min Completed Mar 12 You earned a badge by completing a module. badge Classify images Mar 12 Well done! You completed a module. 200 XP module Classify images 48 min Completed Mar 12 You earned a trophy by completing a learning path. trophy Create computer vision solutions with Azure AI Vision Mar 12 You earned a badge by completing a module. badge Analyze video Mar 12 Well done! You completed a module. 200 XP module Analyze video 48 min Completed Mar 12 You earned a badge by completing a module. badge Read Text in images and documents with the Azure AI Vision Service Mar 12 Well done! You completed a module. 200 XP module Read Text in images and documents with the Azure AI Vision Service 33 min Completed Mar 12 You earned a badge by completing a module. badge Detect, analyze, and recognize faces Mar 12 Well done! You completed a module. 200 XP module Detect, analyze, and recognize faces 1 hr 8 min Completed Your activity feed shows up to 30 interactions over the past 30 days. Previous Versions Blog Contribute Privacy Terms of Use Trademarks © Microsoft 2024
+Project stats
+Boards
+1
+Work items created
+0
+Work items completed
+Members
+1
+
+Changes have been saved successfully.
+
+
+
+Mail Delivery Subsystem
+	
+Mon, Apr 8, 11:53 AM (3 days ago)
+	
+to me
+Error Icon
+Message blocked
+Your message to visualstudio-noreply@microsoft.com has been blocked. See technical details below for more information.
+The response from the remote server was:
+
+550 5.4.1 Recipient address rejected: Access denied. AS(201806281) [DM3NAM06FT003.Eop-nam06.prod.protection.outlook.com 2024-04-08T09:53:20.021Z 08DC56A79804153B]
+
+
+
+---------- Forwarded message ----------
+From: tshingombe fiston <tshingombefiston@gmail.com>
+To: Visual Studio <visualstudio-noreply@microsoft.com>, tshingombe fiston <tshingombefiston@gmail.com>, TSHINGOMBEKB TSHITADI <TSHINGOMBEKB@gmail.com>
+Cc: 
+Bcc: 
+Date: Mon, 8 Apr 2024 11:52:55 +0200
+Subject: Re: Tshingombe Tshitadi reported a new issue in the Visual Studio developer community
+----- Message truncated -----
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Mon, Apr 8, 11:59 AM (3 days ago)
+	
+to Mail
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Mon, Apr 8, 12:00 PM (3 days ago)
+	
+to Visual
+Skip to content
+
+    Codespaces 
+
+Codespace could not be created: Repository may not be used for a codespace  
+Codespaces
+
+
+Your codespaces
+Explore quick start templates
+
+    Blank
+    By github
+
+Start with a blank canvas or import any packages you need.
+React
+By github
+React
+
+A popular JavaScript library for building user interfaces based on UI components.
+Jupyter Notebook
+By github
+Jupyter Notebook
+
+JupyterLab is the latest web-based interactive development environment for notebooks, code, and data.
+.NET
+By github
+.NET
+
+A full-stack web application template written in C# leveraging the power of .NET 8.
+Owned by t5h2i0tadi
+Azure
+Azure/Azure-Verified-Modules
+psychic space couscous
+
+main*
+
+This codespace has uncommitted changes
+
+2-core • 8GB RAM • 32GB
+•
+
+0.77 GB
+•
+
+Active
+t5h2i0tadi
+t5h2i0tadi/t5h2i0tadi
+super goldfish
+main
+
+No changes
+
+4-core • 16GB RAM • 32GB
+•
+
+0.74 GB
+•
+
+Last used 22 days ago
+t5h2i0tadi
+t5h2i0tadi/t5h2i0tadi
+stunning disco
+main
+
+No changes
+
+4-core • 16GB RAM • 32GB
+•
+
+0.74 GB
+•
+
+Last used 22 days ago
+Footer
+© 2024 GitHub, Inc.
+Footer navigation
+
+    Terms
+    Privacy
+    Security
+    Status
+    Docs
+    Contact
+
+
+
+    By repository
+
+
+
+Mail Delivery Subsystem
+	
+Mon, Apr 8, 12:00 PM (3 days ago)
+	
+to me
+Error Icon
+Message blocked
+Your message to visualstudio-noreply@microsoft.com has been blocked. See technical details below for more information.
+The response from the remote server was:
+
+550 5.4.1 Recipient address rejected: Access denied. AS(201806281) [DM3NAM06FT016.Eop-nam06.prod.protection.outlook.com 2024-04-08T10:00:43.129Z 08DC57A5461014A4]
+
+
+
+---------- Forwarded message ----------
+From: tshingombe fiston <tshingombefiston@gmail.com>
+To: Visual Studio <visualstudio-noreply@microsoft.com>
+Cc: 
+Bcc: 
+Date: Mon, 8 Apr 2024 12:00:17 +0200
+Subject: Re: Tshingombe Tshitadi reported a new issue in the Visual Studio developer community
+----- Message truncated -----
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Mon, Apr 8, 12:01 PM (3 days ago)
+	
+to Visual, TSHINGOMBEKB, me
+Skip to main contentAzure DevOps
+
+
+tshingombefiston0053
+tshingombefiston
+New organization
+Organization settings
+tshingombefiston0053
+ProjectsMy work itemsMy pull requests
+
+
+    Engineering electrical assessment career but sustainability
+
+
+
+    engineering college university transcript job volum librarie
+    job engineering book volume Skip to main content Learn 46307064 tshingombefiston@gmail.com MCID:995847175 Badges 851 Trophies 200 Reputation points 0 Accepted answers 0 Following 0 Followers 0 Level 16 70% 1,344,100/1,481,099 XP Activity Training Challenges Credentials Q&A Achievements Collections Transcript Past 7 days Apr 8 You asked a question question engineering 0 Votes 0 Comments 0 Answers Past 30 days Mar 19 You earned a trophy by completing a learning path. trophy Get started with Microsoft Fabric Mar 19 You earned a badge by completing a modu
+
+Mail Delivery Subsystem
+	
+Mon, Apr 8, 12:01 PM (3 days ago)
+	
+to me
+Error Icon
+Message blocked
+Your message to visualstudio-noreply@microsoft.com has been blocked. See technical details below for more information.
+The response from the remote server was:
+
+550 5.4.1 Recipient address rejected: Access denied. AS(201806281) [BL2NAM06FT014.Eop-nam06.prod.protection.outlook.com 2024-04-08T10:01:29.904Z 08DC53086C2C30C3]
+
+
+
+---------- Forwarded message ----------
+From: tshingombe fiston <tshingombefiston@gmail.com>
+To: Visual Studio <visualstudio-noreply@microsoft.com>, tshingombe fiston <tshingombefiston@gmail.com>, TSHINGOMBEKB TSHITADI <TSHINGOMBEKB@gmail.com>
+Cc: 
+Bcc: 
+Date: Mon, 8 Apr 2024 12:01:00 +0200
+Subject: Re: Tshingombe Tshitadi reported a new issue in the Visual Studio developer community
+----- Message truncated -----
+tshingombe fiston <tshingombefiston@gmail.com>
+	
+Mon, Apr 8, 12:10 PM (3 days ago)
+	
+to Visual, TSHINGOMBEKB, me
+Skip to content
+
+    Codespaces 
+
+t5h2i0tadi/t5h2i0tadi Public Config files for my GitHub profile. Updated 
+
+
+    By repository
+
+
+
+Mail Delivery Subsystem
+	
+Mon, Apr 8, 12:10 PM (3 days ago)
+	
+to me
+Error Icon
+Message blocked
+Your message to visualstudio-noreply@microsoft.com has been blocked. See technical details below for more information.
+The response from the remote server was:
+
+550 5.4.1 Recipient address rejected: Access denied. AS(201806281) [BL2NAM06FT003.Eop-nam06.prod.protection.outlook.com 2024-04-08T10:10:29.468Z 08DC56D3852B455F]
+
+
+
+---------- Forwarded message ----------
+From: tshingombe fiston <tshingombefiston@gmail.com>
+To: Visual Studio <visualstudio-noreply@microsoft.com>, tshingombe fiston <tshingombefiston@gmail.com>, TSHINGOMBEKB TSHITADI <TSHINGOMBEKB@gmail.com>
+Cc: 
+Bcc: 
+Date: Mon, 8 Apr 2024 12:10:03 +0200
+Subject: Re: Tshingombe Tshitadi reported a new issue in the Visual Studio developer community
+----- Message truncated -----
+	
+Page 1 of 28
  
  
  
